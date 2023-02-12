@@ -12,7 +12,7 @@ tags:
 coverImage: "novias-2018-bebas-closet-memories-of-madrid-1.jpg"
 ---
 
-\[dropcap\]Su abuela y Madrid como punto de partida. **Belén Barbero**, directora creativa de [**Beba's Closet**](http://bebascloset.com), recrea un taller de costura y nos hace viajar hasta los años 50 en la presentación de su nueva colección para **novias 2018**. Nos invita a soñar a través de los recuerdos de cuando era niña con una narración en audio repleta de sentimiento. En ella cuenta cómo Madrid siempre fue el escenario de sus sueños. Cómo Jeanne Paquin, Balenciaga o Rabanne fueron su gran fuente de inspiración\[/dropcap\].
+Su abuela y Madrid como punto de partida. **Belén Barbero**, directora creativa de [**Beba's Closet**](http://bebascloset.com), recrea un taller de costura y nos hace viajar hasta los años 50 en la presentación de su nueva colección para **novias 2018**. Nos invita a soñar a través de los recuerdos de cuando era niña con una narración en audio repleta de sentimiento. En ella cuenta cómo Madrid siempre fue el escenario de sus sueños. Cómo Jeanne Paquin, Balenciaga o Rabanne fueron su gran fuente de inspiración.
 
 ![novias 2018 bebas closet memories of madrid](/images/novias-2018-bebas-closet-memories-of-madrid-2.jpg)
 

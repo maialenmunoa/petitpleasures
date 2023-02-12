@@ -11,7 +11,7 @@ tags:
 coverImage: "el-must-have-de-la-novia-libro-organizar-boda-1.jpg"
 ---
 
-\[dropcap\]¿Qué día es el más adecuado para celebrar la **boda**? ¿Cómo organizo las mesas? ¿Cuáles son los tiempos de los **preparativos**? ¿Qué **detalles** no pueden faltar? Si te vas a casar, seguro que todas estas dudas rondan desordenadas por tu cabeza. Por eso, lo que necesitas es **'El Must Have de la Novia'**. Un libro que tiene como objetivo ayudar a las parejas que se encuentran perdidas en los preparativos de la boda\[/dropcap\].
+¿Qué día es el más adecuado para celebrar la **boda**? ¿Cómo organizo las mesas? ¿Cuáles son los tiempos de los **preparativos**? ¿Qué **detalles** no pueden faltar? Si te vas a casar, seguro que todas estas dudas rondan desordenadas por tu cabeza. Por eso, lo que necesitas es **'El Must Have de la Novia'**. Un libro que tiene como objetivo ayudar a las parejas que se encuentran perdidas en los preparativos de la boda.
 
 A lo largo de 19 capítulos, el nuevo libro-planificador de [**Fit For Weddings**](http://fitforweddings.es) indica los pasos que debéis seguir para hacer de vuestra boda un día inolvidable. Además, estas wedding planners aportan sus mejores consejos como profesionales de la organización de bodas y añaden una lista personalizada de los mejores proveedores.
 

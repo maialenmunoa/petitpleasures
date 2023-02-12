@@ -11,7 +11,7 @@ tags:
 coverImage: "boda-eleonora-jaime-tocado-de-plumas-0.jpg"
 ---
 
-\[dropcap\]Sabéis esas [**bodas**](https://petitpleasures.com/bodas-que-inspiran/) que cuando veis las fotos pensáis, me encantaría haber estado allí. Porque las fotos derrochan un buen rollo tremendo, porque los invitados ríen a carcajadas y porque los novios comparten miradas cómplices en cada instantánea. Ese brillo tan peculiar en los ojos... Se nota. Todas esas sensaciones me pasaron por la cabeza cuando vi las fotos de **la boda de Eleonora y Jaime**. Unas imágenes del fotógrafo [**Bruno Giliberto**](http://weddings.brunogiliberto.com/) que reflejan el colorido, el espíritu y el estilo de esta boda tan increíble\[/dropcap\].
+Sabéis esas [**bodas**](https://petitpleasures.com/bodas-que-inspiran/) que cuando veis las fotos pensáis, me encantaría haber estado allí. Porque las fotos derrochan un buen rollo tremendo, porque los invitados ríen a carcajadas y porque los novios comparten miradas cómplices en cada instantánea. Ese brillo tan peculiar en los ojos... Se nota. Todas esas sensaciones me pasaron por la cabeza cuando vi las fotos de **la boda de Eleonora y Jaime**. Unas imágenes del fotógrafo [**Bruno Giliberto**](http://weddings.brunogiliberto.com/) que reflejan el colorido, el espíritu y el estilo de esta boda tan increíble.
 
 ![boda eleonora jaime tocado de plumas](/images/boda-eleonora-jaime-tocado-de-plumas-1.jpg)
 

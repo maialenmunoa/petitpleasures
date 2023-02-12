@@ -11,7 +11,7 @@ tags:
 coverImage: "boda-puyan-paul-campina-francesa-petit-pleasures-1.jpg"
 ---
 
-\[dropcap\]Cuando dos almas creativas se juntan, solo pueden salir cosas bonitas. Ella, **diseñadora de moda**. Él, **ilustrador**. ¿Por dónde empezar a preparar la boda de sus sueños? **Puyan y Paul** lo tuvieron claro desde el principio. “Empezamos a planear nuestra boda como si fuera un proyecto creativo, un escenario o un libro. Paul siente gran conexión con el paisaje de su país (Francia), y así fue como encontramos este increíble lugar en medio de la **campiña de Perigord**”, explica Puyan\[/dropcap\].
+Cuando dos almas creativas se juntan, solo pueden salir cosas bonitas. Ella, **diseñadora de moda**. Él, **ilustrador**. ¿Por dónde empezar a preparar la boda de sus sueños? **Puyan y Paul** lo tuvieron claro desde el principio. “Empezamos a planear nuestra boda como si fuera un proyecto creativo, un escenario o un libro. Paul siente gran conexión con el paisaje de su país (Francia), y así fue como encontramos este increíble lugar en medio de la **campiña de Perigord**”, explica Puyan.
 
 La **boda** de esta pareja me conquistó desde que la vi por primera vez en noviembre del año pasado. En cuanto abrí **[Petit Pleasures](https://petitpleasures.com/)** tuve claro que ésta sería la primera que publicaría. Escribí a [**Jérémy**](https://www.instagram.com/jeremyboyerweddings/), el magnífico fotógrafo de la boda, y después él me puso en contacto con Puyan, una chica extraordinaria y llena de creatividad. ¿Quieres descubrir todos los detalles de esta boda? Sigue leyendo y no dejes de sorprenderte...
 

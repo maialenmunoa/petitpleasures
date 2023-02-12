@@ -11,7 +11,7 @@ tags:
 coverImage: "vestidos-de-invitada-sara-lage-0.jpg"
 ---
 
-\[dropcap\]Ver más allá de una simple prenda de ropa. Sentirse más que una diseñadora. Ser una modista. Reivindicar su profesión. Y su pasión por la costura. Así concibe [**Sara Lage**](http://saralage.com/) su mundo particular, su pasión y su medio de vida. “Elige un trabajo que te guste y no tendrás que trabajar ni un día de tu vida”. La joven gallega eleva esta célebre frase de Confucio al infinito. “Soy Sara Lage y soy **modista**”. Toda una declaración de intenciones. ¿Te apetece descubrir el secreto de **Madame D.** y sus **vestidos de invitada\[/dropcap\]**?
+Ver más allá de una simple prenda de ropa. Sentirse más que una diseñadora. Ser una modista. Reivindicar su profesión. Y su pasión por la costura. Así concibe [**Sara Lage**](http://saralage.com/) su mundo particular, su pasión y su medio de vida. “Elige un trabajo que te guste y no tendrás que trabajar ni un día de tu vida”. La joven gallega eleva esta célebre frase de Confucio al infinito. “Soy Sara Lage y soy **modista**”. Toda una declaración de intenciones. ¿Te apetece descubrir el secreto de **Madame D.** y sus **vestidos de invitada**?
 
 Sara Lage es un proyecto personal, una forma de vivir y una manera de entender un oficio. “Modista es esa persona que diseña sus colecciones, que hace los patrones, que corta. Una modista se sienta frente a frente a su clienta y la observa, la escucha para plantearle su mejor opción. Modista es quien termina esa prenda, quien la cose y la prueba”, explica Lage.
 

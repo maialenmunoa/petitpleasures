@@ -12,7 +12,7 @@ tags:
 coverImage: "invitada-de-boda-perfecta-trucos-petit-pleasures-1.jpg"
 ---
 
-\[dropcap\]Son cinco pero podrían ser más. Sin dármelas de súper experta en nada, recopilo en este artículo 5 trucos para ser la **invitada de boda perfecta**, o por lo menos intentarlo. Si buscas nuevas ideas o tips para sorprender con tu look en una [boda](https://petitpleasures.com/bodas/) (sin deslumbrar a la [novia](https://petitpleasures.com/vestidos/), claro) sigue leyendo este artículo\[/dropcap\]...
+Son cinco pero podrían ser más. Sin dármelas de súper experta en nada, recopilo en este artículo 5 trucos para ser la **invitada de boda perfecta**, o por lo menos intentarlo. Si buscas nuevas ideas o tips para sorprender con tu look en una [boda](https://petitpleasures.com/bodas/) (sin deslumbrar a la [novia](https://petitpleasures.com/vestidos/), claro) sigue leyendo este artículo...
 
 ### 1\. Deja el LBD en casa
 

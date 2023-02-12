@@ -11,7 +11,7 @@ tags:
 coverImage: "boda-intima-catie-roger-1.jpg"
 ---
 
-\[dropcap\]La de **Catie y Roger** es de esas historias que parecen de película. De esas en las que el amor es el hilo conductor de dos grandes protagonistas. Una historia que culmina en una preciosa boda íntima. Pero empecemos por el principio. Catie y Roger se conocieron en el otoño de 2015. Él vivía en Miami y ella en Carolina del Sur. El destino quiso que coincidieran en el mismo hotel de Miami Beach\[/dropcap\].
+La de **Catie y Roger** es de esas historias que parecen de película. De esas en las que el amor es el hilo conductor de dos grandes protagonistas. Una historia que culmina en una preciosa boda íntima. Pero empecemos por el principio. Catie y Roger se conocieron en el otoño de 2015. Él vivía en Miami y ella en Carolina del Sur. El destino quiso que coincidieran en el mismo hotel de Miami Beach.
 
 Catie viajaba junto a sus amigas para disfrutar de una despedida de soltera y Roger celebraba su 40 cumpleaños. Fue esa misma noche cuando se encontraron por primera vez. Hablaron y bailaron toda la noche. Y al día siguiente se vieron… “El resto es historia”, cuenta la pareja.
 

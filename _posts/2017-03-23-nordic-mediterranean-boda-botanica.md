@@ -12,7 +12,7 @@ tags:
 coverImage: "boda-botanica-nordic-mediterranean-editorial-petit-pleasures-0.jpg"
 ---
 
-\[dropcap\]Una historia de amor real con una **boda botánica** ficticia. Es como si Irantzu y Jonas estuvieran practicando para su gran día. La editorial **Nordic & Mediterranean** que protagoniza la pareja tiene como objetivo reflejar el amor verdadero que se respira en una [**boda**](https://petitpleasures.com/bodas/). Más allá de un shooting sobre el día "B", este trabajo organizado y fotografiado por [**Serendipia Visual**](http://www.serendipiavisual.es/) nos traslada la química real de una pareja\[/dropcap\].
+Una historia de amor real con una **boda botánica** ficticia. Es como si Irantzu y Jonas estuvieran practicando para su gran día. La editorial **Nordic & Mediterranean** que protagoniza la pareja tiene como objetivo reflejar el amor verdadero que se respira en una [**boda**](https://petitpleasures.com/bodas/). Más allá de un shooting sobre el día "B", este trabajo organizado y fotografiado por [**Serendipia Visual**](http://www.serendipiavisual.es/) nos traslada la química real de una pareja.
 
 “Mi fotografía capta las emociones y sentimientos de la pareja. Para esta sesión buscamos que los novios fuesen una pareja real para poder captar esa química, ese sentimiento que hay en una mirada, en un gesto y en un beso. No quería que hubiese nada fingido, sino mostrar una boda real dentro de una boda ficticia”, explica Silvia Serena de Serendipia.
 

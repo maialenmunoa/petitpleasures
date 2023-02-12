@@ -11,7 +11,7 @@ tags:
 coverImage: "coleccion-filomena-juana-rique-vestido-de-novia-petit-pleasures-1.jpg"
 ---
 
-**\[dropcap\]Luz y flores**. La belleza de los pequeños detalles, la **calidad de los tejidos** y la apuesta por el **color**. Así son las nuevas propuestas **Primavera-Verano 2017** de **[Juana Rique](http://juanarique.com/)**. La diseñadora gallega presenta **Filomena**, una colección que se compone de once diseños de fiesta y un vestido de novia\[/dropcap\].
+**Luz y flores**. La belleza de los pequeños detalles, la **calidad de los tejidos** y la apuesta por el **color**. Así son las nuevas propuestas **Primavera-Verano 2017** de **[Juana Rique](http://juanarique.com/)**. La diseñadora gallega presenta **Filomena**, una colección que se compone de once diseños de fiesta y un vestido de novia.
 
 \[one\_half padding="0 10px 0 0"\]![coleccion filomena juana rique vestido de novia petit pleasures](/images/coleccion-filomena-juana-rique-vestido-de-novia-petit-pleasures-2.jpg)\[/one\_half\]\[one\_half\_last padding= "0 0 0 10px"\] ![](/images/coleccion-filomena-juana-rique-vestido-de-novia-petit-pleasures-3.jpg)\[/one\_half\_last\]
 

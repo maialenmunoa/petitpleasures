@@ -10,7 +10,7 @@ tags:
 coverImage: "boda-junto-al-mar-fortia-editorial-inspiracion-1.jpg"
 ---
 
-\[dropcap\]La playa Benijo de Tenerife es el escenario perfecto para **Fortia**, la nueva editorial de [**Rodolfo Mcartney**](http://noquiero.es). De sus aguas resurge una novia única, con personalidad arrolladora, que camina descalza sobre la arena y las rocas. Su espíritu libre se desenvuelve en un entorno natural. La esencia del mar sirve como inspiración para crear looks de novia con una alta dosis de nostalgia del pasado. ¿Piensas en una boda junto al mar\[/dropcap\]?
+La playa Benijo de Tenerife es el escenario perfecto para **Fortia**, la nueva editorial de [**Rodolfo Mcartney**](http://noquiero.es). De sus aguas resurge una novia única, con personalidad arrolladora, que camina descalza sobre la arena y las rocas. Su espíritu libre se desenvuelve en un entorno natural. La esencia del mar sirve como inspiración para crear looks de novia con una alta dosis de nostalgia del pasado. ¿Piensas en una boda junto al mar?
 
 ![boda junto al mar fortia editorial inspiracion ](/images/boda-junto-al-mar-fortia-editorial-inspiracion-2.jpg)
 

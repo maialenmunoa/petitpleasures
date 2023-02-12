@@ -11,7 +11,7 @@ tags:
 coverImage: "lazos-para-el-pelo-petit-pleasures.jpg"
 ---
 
-\[dropcap\]¿Alguna obsesionada más por aquí con los **lazos para el pelo**?\[/dropcap\] Confieso que soy una de ellas y sé que hay muchas entre vosotras. Es una de las tendencias de **accesorios para el pelo** estrella de este 2017. Lo acaba de reafirmar la pasarela de Nueva York y las propuestas **Otoño-Invierno 2017/2018** de **Tory Burch**, **Marchesa** o **Carolina Herrera**.
+¿Alguna obsesionada más por aquí con los **lazos para el pelo**? Confieso que soy una de ellas y sé que hay muchas entre vosotras. Es una de las tendencias de **accesorios para el pelo** estrella de este 2017. Lo acaba de reafirmar la pasarela de Nueva York y las propuestas **Otoño-Invierno 2017/2018** de **Tory Burch**, **Marchesa** o **Carolina Herrera**.
 
 \[one\_half padding="0 10px 0 0"\]![lazos para el pelo tory burch new york fashion week](/images/lazos-para-el-pelo-tory-burch-petit-pleasures-1.jpg "lazos para el pelo tory burch new york fashion week")\[/one\_half\]\[one\_half\_last padding= "0 0 0 10px"\] ![lazos para el pelo tory burch new york fashion week](/images/lazos-para-el-pelo-tory-burch-petit-pleasures-2.jpg "lazos para el pelo tory burch new york fashion week")\[/one\_half\_last\]
 

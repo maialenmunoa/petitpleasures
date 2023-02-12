@@ -11,7 +11,7 @@ tags:
 coverImage: "la-boda-de-yle-y-juan-1.jpg"
 ---
 
-\[dropcap\]Chica santanderina y chico madrileño cruzan sus miradas un sábado por la noche en Madrid. Se conocen. Se confiesan adictos a la Coca Cola Light. Viven mil batallas juntos. Se prometen amor eterno. "Y muchas risas de dos". La historia de **Yle y Juan** podría resumirse en seis frases, así me lo cuenta ella en un email cargado de palabras bonitas\[/dropcap\].
+Chica santanderina y chico madrileño cruzan sus miradas un sábado por la noche en Madrid. Se conocen. Se confiesan adictos a la Coca Cola Light. Viven mil batallas juntos. Se prometen amor eterno. "Y muchas risas de dos". La historia de **Yle y Juan** podría resumirse en seis frases, así me lo cuenta ella en un email cargado de palabras bonitas.
 
 La [**boda**](https://petitpleasures.com/bodas/) de estos novios es especial. Lo supe desde que conocí a Yle en [**Instagram**](https://www.instagram.com/petit_pleasures_/) y vi por primera vez algunas fotos de su espectacular [**vestido de novia**](https://petitpleasures.com/vestidos/). Ella y yo conectamos mucho, percibimos las cosas bonitas de manera muy similar. Siempre tiene palabras de ánimo y piropos preparados para lanzarme. Así que ésta es mi manera de agradecerle, de rendirle un pequeño homenaje a su preciosa boda, a ella, a los dos. A Yle y a Juan.
 

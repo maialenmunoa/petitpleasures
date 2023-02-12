@@ -12,7 +12,7 @@ tags:
 coverImage: "vestidos-de-novia-2017-castellar-granados-1.jpg"
 ---
 
-**\[dropcap\]Castellar Granados** no es una recién llegada. En la época en la que todas las mujeres querían vestir de Miguel Palacio, ella trabajaba mano a mano con él. Tras una larga trayectoria como diseñadora de moda, [Castellar Granados](http://www.castellargranados.com/) se embarca en una nueva aventura estableciéndose como **atelier de Alta Costura en Madrid**. La diseñadora madrileña presenta su primera colección de **vestidos de novia 2017\[/dropcap\]**.
+**Castellar Granados** no es una recién llegada. En la época en la que todas las mujeres querían vestir de Miguel Palacio, ella trabajaba mano a mano con él. Tras una larga trayectoria como diseñadora de moda, [Castellar Granados](http://www.castellargranados.com/) se embarca en una nueva aventura estableciéndose como **atelier de Alta Costura en Madrid**. La diseñadora madrileña presenta su primera colección de **vestidos de novia 2017**.
 
 \[one\_half padding="0 10px 0 0"\]![vestidos de novia 2017 castellar granados](/images/vestidos-de-novia-2017-castellar-granados-2.jpg)\[/one\_half\]\[one\_half\_last padding= "0 0 0 10px"\] ![vestidos de novia 2017 castellar granados](/images/vestidos-de-novia-2017-castellar-granados-3.jpg)\[/one\_half\_last\]
 

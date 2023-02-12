@@ -11,7 +11,7 @@ tags:
 coverImage: "atelier-couture-vestidos-de-novia-petit-pleasures.jpg"
 ---
 
-\[dropcap\]Dos días intensos de moda, diseño, artesanía y buen hacer. Un lugar de ensueño, el **Palacio Fernán Núñez de Madrid**. Las mejores manos artesanas de nuestro país, auténticos tejedores de sueños para [**novias**](https://petitpleasures.com/vestidos/). Así describo, en pocas palabras, mi primera vez en [**Atelier Couture**](http://www.ateliercouture.es/). Un proyecto que apuesta por los diseñadores artesanos de nuestro país y que ha celebrado su tercera edición\[/dropcap\].
+Dos días intensos de moda, diseño, artesanía y buen hacer. Un lugar de ensueño, el **Palacio Fernán Núñez de Madrid**. Las mejores manos artesanas de nuestro país, auténticos tejedores de sueños para [**novias**](https://petitpleasures.com/vestidos/). Así describo, en pocas palabras, mi primera vez en [**Atelier Couture**](http://www.ateliercouture.es/). Un proyecto que apuesta por los diseñadores artesanos de nuestro país y que ha celebrado su tercera edición.
 
 Entrar en el palacio madrileño es como viajar a la Francia del siglo XIX. La majestuosidad del edificio seduce con su decoración recargada y romántica, repleta de espejos y enormes lámparas de araña. Se trata del escenario perfecto para presentar **diseños de novia** únicos y exclusivos, donde podemos ver de cerca los tejidos, apreciar los detalles, admirar los movimientos de los vestidos, etc. Todo en petit comité, muy exclusivo pero cercano a la vez.
 

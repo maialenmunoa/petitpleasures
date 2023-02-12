@@ -12,7 +12,7 @@ tags:
 coverImage: "petit-pleasures-blog-bodas-2.jpg"
 ---
 
-\[dropcap\]Algunas\[/dropcap\] me conoceréis por mi [**perfil de Instagram**](https://www.instagram.com/petit_pleasures_). Otras entraréis por primera vez en este blog sin saber nada de mí. Lo cierto es que muchas de las que me seguís en las redes sociales no sabéis ni siquiera mi nombre ni de la existencia de este blog de bodas.
+Algunas me conoceréis por mi [**perfil de Instagram**](https://www.instagram.com/petit_pleasures_). Otras entraréis por primera vez en este blog sin saber nada de mí. Lo cierto es que muchas de las que me seguís en las redes sociales no sabéis ni siquiera mi nombre ni de la existencia de este blog de bodas.
 
 Creo que ha llegado el momento de presentarme, aunque sea un poco. Mi nombre es **Maialen**. Soy **periodista**, de **Donosti**, pero en la actualidad vivo en **Madrid**. ¿Por qué abrí el perfil de Instagram hace más de 6 meses? Confieso que después de casarme noté que me faltaba algo. En realidad, no quería apartarme de un universo tan bonito como el de las bodas. Durante un año disfruté preparando mi día y viví al máximo cada detalle de los preparativos. Es una experiencia como muchas sabréis, o seguro que os han contado, única.
 

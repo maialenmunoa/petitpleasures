@@ -11,7 +11,7 @@ tags:
 coverImage: "pronovias-vestido-novia-leticia-barry-0.jpg"
 ---
 
-\[dropcap\]Liubliana (Eslovenia) como ciudad testigo de su amor. De su primera mirada. Y del primer cruce de palabras. Un punto de encuentro casual, una jugada caprichosa del destino. **Leticia y Barry** se conocieron en un hostal. Él viajaba por Europa y Asia antes de empezar su nueva vida en Australia. Ella estaba de Interrail con sus mejores amigas. Tras compartir confidencias en aquel hostal de Liubliana, pasaron la noche hablando y paseando hasta el amanecer\[/dropcap\].
+Liubliana (Eslovenia) como ciudad testigo de su amor. De su primera mirada. Y del primer cruce de palabras. Un punto de encuentro casual, una jugada caprichosa del destino. **Leticia y Barry** se conocieron en un hostal. Él viajaba por Europa y Asia antes de empezar su nueva vida en Australia. Ella estaba de Interrail con sus mejores amigas. Tras compartir confidencias en aquel hostal de Liubliana, pasaron la noche hablando y paseando hasta el amanecer.
 
 Después, cada uno siguió su camino aunque mantuvieron el contacto vía Facebook. La distancia nunca fue un obstáculo pero ansiaban estar juntos. Diez días mágicos en la India fueron suficientes para consolidar su amor. Éste fue el viaje que lo cambió todo y les animó a comenzar una relación en Madrid. En el verano de 2015, la pareja viajó hasta Escocia. Fue el momento perfecto para que Barry le pidiera matrimonio en una preciosa playa de arena blanca y agua cristalina. Leticia dijo sí...
 

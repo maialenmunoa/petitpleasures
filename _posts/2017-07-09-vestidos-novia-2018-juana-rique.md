@@ -12,9 +12,9 @@ tags:
 coverImage: "vestidos-novia-2018-juana-rique-0.jpg"
 ---
 
-\[dropcap\]Alba, Amelia, Aurora, Carmela, Divina, Dolores, Flora, Jesusa, Margarita, Narcisa, Pura, Rosalía y Victoria. Las mujeres de [**Juana Rique**](http://juanarique.com/) tienen muchísima fuerza. Sus nombres suenan rotundos, con clase y muy elegantes. Son el fiel reflejo de la personalidad de las mujeres que representan, siempre envueltas en un magnético halo de misterio.
+Alba, Amelia, Aurora, Carmela, Divina, Dolores, Flora, Jesusa, Margarita, Narcisa, Pura, Rosalía y Victoria. Las mujeres de [**Juana Rique**](http://juanarique.com/) tienen muchísima fuerza. Sus nombres suenan rotundos, con clase y muy elegantes. Son el fiel reflejo de la personalidad de las mujeres que representan, siempre envueltas en un magnético halo de misterio.
 
-Los vestidos de la firma gallega tienen una especie de fuerza sobrenatural que engancha y hace que no puedas dejar de mirarlos. Algo así me ocurrió cuando vi sus diseños en vivo y en directo en el desfile de [**Atelier Couture**](https://petitpleasures.com/atelier-couture-2017-vestidos-de-novia/). El trabajo de estilismo, la música y la idea creativa me parecieron de sobresaliente. Ahora por fin sale a la luz **Casavielle**, la nueva colección de novia de Juana Rique\[/dropcap\].
+Los vestidos de la firma gallega tienen una especie de fuerza sobrenatural que engancha y hace que no puedas dejar de mirarlos. Algo así me ocurrió cuando vi sus diseños en vivo y en directo en el desfile de [**Atelier Couture**](https://petitpleasures.com/atelier-couture-2017-vestidos-de-novia/). El trabajo de estilismo, la música y la idea creativa me parecieron de sobresaliente. Ahora por fin sale a la luz **Casavielle**, la nueva colección de novia de Juana Rique.
 
 Tenía muchísimas ganas de ver este _shooting_. Además, ya me habían puesto los dientes largos [**Rodolfo McCartney**](http://noquiero.es/) y la fotógrafa [**Lorena San José**](http://www.lorenasanjose.com/), la artista que ha fotografiado la nueva colección. Sabía que no me iba a defraudar. Lo que no sabía es que me iba a enamorar de esta manera.
 

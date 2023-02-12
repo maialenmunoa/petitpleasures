@@ -12,7 +12,7 @@ tags:
 coverImage: "tocados-originales-para-el-pelo-verbena-madrid-1.jpg"
 ---
 
-\[dropcap\]Evolución. Tocados originales para el pelo. Diferentes. Accesorios que crecen de manera vertical. Únicos. Se elevan hasta el infinito para resaltar la belleza de la mujer que los luce. Para convertirla en una reina. La reina de la verbena\[/dropcap\]...
+Evolución. Tocados originales para el pelo. Diferentes. Accesorios que crecen de manera vertical. Únicos. Se elevan hasta el infinito para resaltar la belleza de la mujer que los luce. Para convertirla en una reina. La reina de la verbena...
 
 Hablamos de **[Verbena Madrid](http://verbenamadrid.com/)**, una firma artesana de confección de coronas y tocados que tienen la peculiaridad de crecer verticalmente. Detrás de este apasionante proyecto están **Cristina Criado** y **Carmen García**, dos amigas que han unido fuerzas para dar forma a un sueño. “Después de muchas [**bodas**](https://petitpleasures.com/bodas-que-inspiran/) y eventos detectamos la necesidad de un producto nuevo y diferente para novias e invitadas. El mercado pedía tocados cómodos, elaborados, con diseño y especiales. La tendencia vertical estaba a punto de llegar y quisimos adelantarnos”, explican las fundadoras de Verbena Madrid.
 

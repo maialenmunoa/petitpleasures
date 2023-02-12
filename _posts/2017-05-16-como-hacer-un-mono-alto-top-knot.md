@@ -11,7 +11,7 @@ tags:
 coverImage: "como-hacer-un-mono-alto-top-knot-petit-pleasures-1.jpg"
 ---
 
-\[dropcap\]Es el moño todoterreno por excelencia. Versátil, práctico, resultón y fácil de hacer. Seguro que lo has lucido alguna vez para hacer ejercicio, para ir a la playa o para recogerte el pelo en una tarde de calor. Para muchas seguro que es el moño estándar de andar por casa. En [**Petit Pleasures**](https://petitpleasures.com) os contamos **cómo hacer un** **moño alto Top Knot** y lucirlo con estilo\[/dropcap\].
+Es el moño todoterreno por excelencia. Versátil, práctico, resultón y fácil de hacer. Seguro que lo has lucido alguna vez para hacer ejercicio, para ir a la playa o para recogerte el pelo en una tarde de calor. Para muchas seguro que es el moño estándar de andar por casa. En [**Petit Pleasures**](https://petitpleasures.com) os contamos **cómo hacer un** **moño alto Top Knot** y lucirlo con estilo.
 
 Este estilo de moño es uno de los favoritos de las celebrities. No tenemos más que echar la vista atrás y viajar hasta Nueva York para darnos cuenta. Rihanna, Hailee Steinfeld, Priyanka Chopra, Kate Hudson y Haile Baldwin, entre otras, apostaron por el moño Top Knot para pisar la alfombra roja de la Met Gala 2017.
 

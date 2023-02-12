@@ -11,7 +11,7 @@ tags:
 coverImage: "vestidos-de-novia-paris-fashion-week-desfiles-petit-pleasures.jpg"
 ---
 
-\[dropcap\]París pone el broche final al “fashion month”. 28 días de desfiles en **Nueva York**, **Londres**, **Milán** y **París**. Es decir, un mes repleto de novedades, tendencias, looks street style y nuevas colecciones de las grandes firmas de moda. Inspiración 24/7 para encontrar **vestidos de novia** entre todas las propuestas\[/dropcap\].
+París pone el broche final al “fashion month”. 28 días de desfiles en **Nueva York**, **Londres**, **Milán** y **París**. Es decir, un mes repleto de novedades, tendencias, looks street style y nuevas colecciones de las grandes firmas de moda. Inspiración 24/7 para encontrar **vestidos de novia** entre todas las propuestas.
 
 En [**Petit Pleasures**](https://petitpleasures.com) buscamos la inspiración perfecta para encontrar el [**diseño de novia**](https://petitpleasures.com/vestidos/) de tus sueños. Pero no cualquier diseño. Apostamos por propuestas que inspiren **vestidos de novia originales** adaptados a cualquier tipo de mujer. [Ya lo hicimos con **New York Fashion Week**](https://petitpleasures.com/vestidos-de-novia-new-york-fashion-week/) y sus propuestas más nupciales. Esta vez nos fijamos en París, la pasarela con más glamour de todo el calendario fashion.
 

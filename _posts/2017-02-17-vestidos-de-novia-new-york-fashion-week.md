@@ -11,7 +11,7 @@ tags:
 coverImage: "vestidos-de-novia-desfiles-new-york-fashion-week.jpg"
 ---
 
-\[dropcap\]La **Semana de la Moda de Nueva York** cierra sus puertas. Tras nueve días de desfiles, la pasarela neoyorkina nos deja grandes titulares. El principal, los mensajes reivindicativos a favor del feminismo y la igualdad que han lanzado los diseñadores, modelos e influencers. En cuanto a moda y tendencias, me quedo con los **vestidos de novia** **New York Fashion Week** que he fichado en los desfiles. No quiero dejar de nombrar el espectacular [abrigo amarillo de Raf Simons](http://www.vogue.com/fashion-shows/fall-2017-ready-to-wear/calvin-klein) en su debut para Calvin Klein ni tampoco la [avalancha de lazos](https://petitpleasures.com/lazos-para-el-pelo/) en Tory Burch y Marchesa. Ahora, vamos a lo que interesa**\[/dropcap\]**.
+La **Semana de la Moda de Nueva York** cierra sus puertas. Tras nueve días de desfiles, la pasarela neoyorkina nos deja grandes titulares. El principal, los mensajes reivindicativos a favor del feminismo y la igualdad que han lanzado los diseñadores, modelos e influencers. En cuanto a moda y tendencias, me quedo con los **vestidos de novia** **New York Fashion Week** que he fichado en los desfiles. No quiero dejar de nombrar el espectacular [abrigo amarillo de Raf Simons](http://www.vogue.com/fashion-shows/fall-2017-ready-to-wear/calvin-klein) en su debut para Calvin Klein ni tampoco la [avalancha de lazos](https://petitpleasures.com/lazos-para-el-pelo/) en Tory Burch y Marchesa. Ahora, vamos a lo que interesa****.
 
 Las propuestas de los diseñadores de NYFW que he escogido no son vestidos de novia como tal. Sin embargo, pueden serviros de inspiración para crear el vestido de vuestros sueños.
 

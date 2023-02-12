@@ -12,7 +12,7 @@ tags:
 coverImage: "maquillaje-de-invitada-latelier-beauty-0.jpg"
 ---
 
-\[dropcap\]Siempre es un placer visitar a las chicas de **L’Atelier Madrid**. Las Beas siempre consiguen hacerte sentir como en casa, por eso cuando Marina me llamó para invitarme a un nuevo sarao no lo dudé ni un segundo. Tras el éxito de [**L’Atelier Wedding**](https://petitpleasures.com/evento-de-bodas-en-madrid-latelierwedding/), sabía que no podía perderme su nuevo proyecto. Hace unos días nos reunimos en su atelier para disfrutar de una _masterclass_ de **maquillaje de invitada** de la mano de [**Sarah Miller**](http://www.sarahmillermakeup.com/), maquilladora profesional con amplia experiencia en make up de novias e invitadas\[/dropcap\].
+Siempre es un placer visitar a las chicas de **L’Atelier Madrid**. Las Beas siempre consiguen hacerte sentir como en casa, por eso cuando Marina me llamó para invitarme a un nuevo sarao no lo dudé ni un segundo. Tras el éxito de [**L’Atelier Wedding**](https://petitpleasures.com/evento-de-bodas-en-madrid-latelierwedding/), sabía que no podía perderme su nuevo proyecto. Hace unos días nos reunimos en su atelier para disfrutar de una _masterclass_ de **maquillaje de invitada** de la mano de [**Sarah Miller**](http://www.sarahmillermakeup.com/), maquilladora profesional con amplia experiencia en make up de novias e invitadas.
 
 ![maquillaje de invitada](/images/maquillaje-de-invitada-latelier-beauty-2.jpg)
 

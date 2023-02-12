@@ -12,7 +12,7 @@ tags:
 coverImage: "oscar-2017-mejor-vestidas-alfombra-roja.jpg"
 ---
 
-\[dropcap\]Confieso que todavía no me he recuperado del disgusto... **'La La Land'** no se ha llevado todos los Oscars que creíamos. Ademas, su equipo ha sido protagonista de uno de los momentos más bochornosos de la historia de los premios. Subir a recoger el **Oscar a Mejor Película** y que en mitad del discurso de agradecimiento te digan que ha sido un error... No se me ocurre nada más surrealista. Esto ha pasado en la gala de los **Premios Oscar 2017\[/dropcap\]**.
+Confieso que todavía no me he recuperado del disgusto... **'La La Land'** no se ha llevado todos los Oscars que creíamos. Ademas, su equipo ha sido protagonista de uno de los momentos más bochornosos de la historia de los premios. Subir a recoger el **Oscar a Mejor Película** y que en mitad del discurso de agradecimiento te digan que ha sido un error... No se me ocurre nada más surrealista. Esto ha pasado en la gala de los **Premios Oscar 2017**.
 
 Los **Oscars de 2017** se recordarán para siempre por este desafortunado error, por el pelo afro de Halle Berry y por el aura de ganadora de Emma Stone. En [**Petit Pleasures**](https://petitpleasures.com) hacemos un repaso por **las mejor vestidas de los Oscar 2017**. Como veréis, me decanto claramente por el **#TeamGold**, los dorados han sido mis favoritos en una de las alfombras rojas más descafeinadas de los últimos años. Esto no lo remonta ni el Versace de Penélope Cruz de 2007.
 

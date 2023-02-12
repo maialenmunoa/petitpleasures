@@ -12,7 +12,7 @@ tags:
 coverImage: "vestidos-de-novia-2018-marta-marti-0.jpg"
 ---
 
-\[dropcap\]Med huele a Mediterráneo. A la dulce brisa del mar. Al salitre que golpea las rocas. Med es pura magia que surge de la espuma de las olas. De ahí nace la nueva colección de **vestidos de novia 2018** de [**Marta Martí**](http://www.mmarti.es/). Una propuesta fresca y actual que se compone de 15 diseños inspirados en el Mediterráneo y en todos los elementos naturales que lo componen\[/dropcap\].
+Med huele a Mediterráneo. A la dulce brisa del mar. Al salitre que golpea las rocas. Med es pura magia que surge de la espuma de las olas. De ahí nace la nueva colección de **vestidos de novia 2018** de [**Marta Martí**](http://www.mmarti.es/). Una propuesta fresca y actual que se compone de 15 diseños inspirados en el Mediterráneo y en todos los elementos naturales que lo componen.
 
 \[one\_half padding="0 10px 0 0"\]![vestidos de novia 2018 marta marti](/images/vestidos-de-novia-2018-marta-marti-1.jpg)\[/one\_half\]\[one\_half\_last padding= "0 0 0 10px"\]![vestidos de novia 2018 marta marti](/images/vestidos-de-novia-2018-marta-marti-2.jpg)\[/one\_half\_last\]
 
