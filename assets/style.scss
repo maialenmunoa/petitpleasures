@@ -1145,11 +1145,11 @@ Modules - reusable parts of our design
 
 article.post div.entry>p>img {
   width: 100%;
-  margin-bottom: 20px;
+  margin-bottom: 10px;
 }
 
 article.post div.entry>p>em>img {
-  width: 50%;
-  padding: 0 5px;
-  margin-bottom: 20px;
+  width: calc(50% - 5px);
+  background-color: lightblue;
+  margin-bottom: 10px;
 }

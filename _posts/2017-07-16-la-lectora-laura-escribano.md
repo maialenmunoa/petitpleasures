@@ -30,19 +30,19 @@ Con el [**vestido**](https://petitpleasures.com/vestidos-de-novia/) ya en sus ma
 
 Finalmente, el proceso de recuperación y construcción se realizó a través de modelado sobre maniquí y patronaje en mesa. “El volante se corrigió en forma y caída, adaptándolo a un nuevo canesú entallado a la zona de los hombros realizado a partir del encaje situado en la cadera. El cuello y botones proceden de una _brocanterie_ francesa con la que suelo trabajar mucho, datan de finales del siglo XIX”.
 
-\[one\_half padding="0 3px 0 0"\]![La Lectora](/images/la-lectora-laura-escribano-editorial-6.jpg)\[/one\_half\] \[one\_half\_last padding= "0 0 0 3px"\]![La Lectora](/images/la-lectora-laura-escribano-editorial-7.jpg)\[/one\_half\_last\]
+ *![La Lectora](/images/la-lectora-laura-escribano-editorial-6.jpg)*   *![La Lectora](/images/la-lectora-laura-escribano-editorial-7.jpg)* 
 
 La magia consiste en eso. En dotar de nueva vida piezas que encierran historias magníficas. Una nueva oportunidad en forma de diseño vanguardista, moderno y muy actual. Tanto es así que la nieta, al ver la nueva pieza, “me envió un hermoso email que, por carácter personal no pude compartir, pero me impresionaron mucho sus palabras sobre nuestro trabajo”, cuenta Laura.
 
 ### Los escarabajos como símbolo
 
-\[one\_half padding="0 3px 0 0"\]![La Lectora](/images/la-lectora-laura-escribano-editorial-9.jpg)\[/one\_half\]\[one\_half\_last padding= "0 0 0 3px"\]![La Lectora](/images/la-lectora-laura-escribano-editorial-8.jpg)\[/one\_half\_last\]\[one\_half padding="0 3px 0 0"\]![La Lectora](/images/la-lectora-laura-escribano-editorial-10.jpg)\[/one\_half\]\[one\_half\_last padding= "0 0 0 3px"\]![La Lectora](/images/la-lectora-laura-escribano-editorial-11.jpg)\[/one\_half\_last\]
+ *![La Lectora](/images/la-lectora-laura-escribano-editorial-9.jpg)*  *![La Lectora](/images/la-lectora-laura-escribano-editorial-8.jpg)*  *![La Lectora](/images/la-lectora-laura-escribano-editorial-10.jpg)*  *![La Lectora](/images/la-lectora-laura-escribano-editorial-11.jpg)* 
 
 El conocimiento artístico, cultural e histórico de Laura Escribano no conoce límites. Por eso, es sencillo para ella viajar en el tiempo e inspirarse en épocas remotas y desconocidas para muchos. “Me inspiró rápidamente el período del encaje (Art Decó). Un movimiento que se desarrolla en la década de 1920. Un período del arte, arquitectura y artes decorativas que se desarrolla alrededor de un acontecimiento muy importante: El descubrimiento de la tumba de Tutankamón en 1922”, cuenta la modista.
 
 Egipto se convierte en la cuna de inspiración de este período. En él comienzan a confluir los dorados, las formas geométricas y los materiales opulentos. “He querido hacer un paralelismo entre la fecha del encaje y el movimiento que lo envolvió”, explica Laura.
 
-\[one\_half padding="0 3px 0 0"\]![La Lectora](/images/la-lectora-laura-escribano-editorial-12.jpg)\[/one\_half\]\[one\_half\_last padding= "0 0 0 3px"\]![La Lectora](/images/la-lectora-laura-escribano-editorial-13.jpg)\[/one\_half\_last\]
+ *![La Lectora](/images/la-lectora-laura-escribano-editorial-12.jpg)*  *![La Lectora](/images/la-lectora-laura-escribano-editorial-13.jpg)* 
 
 La capelina Kheper de Laura Escribano no lleva este nombre por casualidad. Se trata de un homenaje al escarabajo egipcio que tiene un doble significado. “Con las alas recogidas es símbolo del discípulo que se va purificando, mientras que con las alas desplegadas representa el logro, la victoria, la iniciación en sí misma”.
 

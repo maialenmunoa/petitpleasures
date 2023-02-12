@@ -17,15 +17,15 @@ Las propuestas de los diseñadores de NYFW que he escogido no son vestidos de no
 
 ### Vestidos de novia New York Fashion Week
 
-\[one\_half padding="0 10px 0 0"\]![vestidos de novia nyfw carolina herrera](/images/vestidos-de-novia-nyfw-carolina-herrera.jpg)\[/one\_half\]\[one\_half\_last padding= "0 0 0 10px"\] ![vestidos de novia nyfw dennis basso](/images/vestidos-de-novia-nyfw-dennis-basso.jpg)\[/one\_half\_last\]
+ *![vestidos de novia nyfw carolina herrera](/images/vestidos-de-novia-nyfw-carolina-herrera.jpg)*  * ![vestidos de novia nyfw dennis basso](/images/vestidos-de-novia-nyfw-dennis-basso.jpg)* 
 
 El cuello alto es una de mis últimas debilidades para novias de invierno. Como ejemplo, la delicadeza de **Carolina Herrera** frente a la sensualidad de **Dennis Basso**. Ambos muy de novia pero de estilos totalmente opuestos. El primero lo veo perfecto para **novias románticas** y la segunda opción, para las que apuestan por diseños, en principio, sencillos. Ojo al detalle del collar de pelo de Dennis Basso, me parece una idea muy original.
 
-\[one\_half padding="0 10px 0 0"\]![vestidos de novia nyfw tory burch](/images/vestidos-de-novia-nyfw-tory-burch.jpg)\[/one\_half\]\[one\_half\_last padding= "0 0 0 10px"\] ![vestidos de novia nyfw prabal gurung](/images/vestidos-de-novia-nyfw-prabal-gurung.jpg)\[/one\_half\_last\]
+ *![vestidos de novia nyfw tory burch](/images/vestidos-de-novia-nyfw-tory-burch.jpg)*  * ![vestidos de novia nyfw prabal gurung](/images/vestidos-de-novia-nyfw-prabal-gurung.jpg)* 
 
 ¿**Vestidos de novia originales**? Si eso es lo que buscas, te propongo un toque de color. La propuesta más nupcial de **Tory Burch** combina el diseño arty de colores con el lazo negro de la coleta. Otra idea interesante es la de **Prabal Gurung** y su vestido a capas. No sé vosotras pero yo este vestido de novia me lo imagino con un pamelón.
 
-\[one\_half padding="0 10px 0 0"\]![vestidos de novia nyfw la perla](/images/vestidos-de-novia-nyfw-la-perla.jpg)\[/one\_half\]\[one\_half\_last padding= "0 0 0 10px"\] ![vestidos de novia nyfw zimmermann](/images/vestidos-de-novia-nyfw-carolina-herrera-zimmermann.jpg)\[/one\_half\_last\]
+ *![vestidos de novia nyfw la perla](/images/vestidos-de-novia-nyfw-la-perla.jpg)*  * ![vestidos de novia nyfw zimmermann](/images/vestidos-de-novia-nyfw-carolina-herrera-zimmermann.jpg)* 
 
 Como **vestido de novia diferente**, puedes escoger entre las transparencias con pedrería de La Perla o el traje de chaqueta oversize de **Zimmermann**. Aunque estas dos últimas propuestas puedan echar para atrás, yo no le diría que no a un traje de chaqueta tan femenino y especial para una boda más informal y divertida.
 

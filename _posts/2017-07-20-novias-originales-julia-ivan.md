@@ -23,7 +23,7 @@ El diseñador [**Ignacio Valdés**](https://www.ignaciovaldes.es/) fue el artíf
 
 La novia lució un original vestido inspirado en los años 70, de cuello medio-alto, con mangas abullonadas y vuelo en la falda. "Quería que fuese sencillo, pero que llevase bordado de color", explica. Para coronar su espectacular look, contó con la ayuda de las chicas de [**Verbena**](http://verbenamadrid.com/). "Con ellas fue flechazo a primera vista. Me parecía una propuesta diferente, que trabajaba sobre mi idea de hacer algo un poco 70's y me ayudaba a romper con la sobriedad de la parte delantera del vestido. Con ellas, igual que con mi tío, fue súper fácil trabajar. Me entendieron a la primera e hicieron la [**corona**](https://petitpleasures.com/tocados-originales-para-el-pelo-verbena-madrid/) que llevé, que es una maravilla", explica la novia.
 
-\[one\_half padding="0 3px 0 0"\]![novias originales boda Julia e Ivan](/images/novias-originales-boda-julia-ivan-6.jpg)\[/one\_half\] \[one\_half\_last padding= "0 0 0 3px"\]![novias originales boda Julia e Ivan](/images/novias-originales-boda-julia-ivan-7.jpg)\[/one\_half\_last\]
+ *![novias originales boda Julia e Ivan](/images/novias-originales-boda-julia-ivan-6.jpg)*   *![novias originales boda Julia e Ivan](/images/novias-originales-boda-julia-ivan-7.jpg)* 
 
 ### La importancia de escoger bien los complementos
 
@@ -47,7 +47,7 @@ Los novios confiaron en [**Días de Vino y Rosas**](http://www.diasdevinoyrosas.
 
 ### Los momentazos de la boda molona
 
-![novias originales boda Julia e Ivan](/images/novias-originales-boda-julia-ivan-13.jpg)![novias originales boda Julia e Ivan](/images/novias-originales-boda-julia-ivan-14.jpg)\[one\_half padding="0 3px 0 0"\]![novias originales boda Julia e Ivan](/images/novias-originales-boda-julia-ivan-15.jpg)\[/one\_half\] \[one\_half\_last padding= "0 0 0 3px"\]![novias originales boda Julia e Ivan](/images/novias-originales-boda-julia-ivan-16.jpg)\[/one\_half\_last\]
+![novias originales boda Julia e Ivan](/images/novias-originales-boda-julia-ivan-13.jpg)![novias originales boda Julia e Ivan](/images/novias-originales-boda-julia-ivan-14.jpg) *![novias originales boda Julia e Ivan](/images/novias-originales-boda-julia-ivan-15.jpg)*   *![novias originales boda Julia e Ivan](/images/novias-originales-boda-julia-ivan-16.jpg)* 
 
 Julia recuerda con especial cariño los preparativos con su madre, la llegada a la finca junto a su hermano, la bajada del coche, las lecturas de la boda, y en especial la de Mercedes, hermana de Iván. "Ver allí a mi padre, ir por el pasillo viendo a todos mis amigos y familiares, para al final encontrarme con Iván. Fue un momento muy bonito, girar la cabeza y verle allí, emocionado. No se me olvida su cara", cuenta la novia.
 

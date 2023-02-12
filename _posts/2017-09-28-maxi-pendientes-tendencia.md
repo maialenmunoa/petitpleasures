@@ -13,7 +13,7 @@ Desde Nueva York hasta París. Los desfiles internacionales lo tienen claro: los
 
 Si tienes una [**boda**](https://petitpleasures.com/novias-originales-julia-ivan/) el próximo verano, o incluso si la tienes ahora, ni lo dudes. Serás la [**invitada perfecta**](https://petitpleasures.com/invitada-de-boda-perfecta-trucos/). Apuesta por unos maxi pendientes o _statement earrings_ que quiten el hipo. Las propuestas que nos llegan en tiempo real desde las pasarelas internacionales confirman nuestras sospechas: cada vez los luciremos más grandes. Desde diseños geométricos hasta _ear cuff_ embellecidos, piezas que respiran puro lujo o que caen en cascada con resplandecientes brillantes.
 
-\[one\_half padding="0 3px 0 0"\]![maxi pendientes tendencia desfiles](/images/maxi_pendientes_tendencia_1-min.jpg)\[/one\_half\] \[one\_half\_last padding= "0 0 0 3px"\]![maxi pendientes tendencia desfiles](/images/maxi_pendientes_tendencia_2-min.jpg)\[/one\_half\_last\]
+ *![maxi pendientes tendencia desfiles](/images/maxi_pendientes_tendencia_1-min.jpg)*   *![maxi pendientes tendencia desfiles](/images/maxi_pendientes_tendencia_2-min.jpg)* 
 
 ### Maxi pendientes, la tendencia se consolida
 
@@ -21,17 +21,17 @@ La alarma saltó en Nueva York en pleno arranque de la [**temporada de desfiles*
 
 Sin palabras nos dejó Brandon Maxwell con su última salida. Karlie Kloss fue la encargada de cerrar el desfile del diseñador, ataviada en un look de novia con falda voluminosa y jersey de cashmere. Su pelo platino como el hielo aportaba luz a un estilismo de ensueño, repleto de luz, y combinado con la joya estrella de la colección: unos maxi pendientes de caballos.
 
-\[one\_half padding="0 3px 0 0"\]![maxi pendientes tendencia desfiles](/images/maxi_pendientes_tendencia_3-min.jpg)\[/one\_half\] \[one\_half\_last padding= "0 0 0 3px"\]![maxi pendientes tendencia desfiles](/images/maxi_pendientes_tendencia_4-min.jpg)\[/one\_half\_last\]\[one\_half padding="0 3px 0 0"\]![maxi pendientes tendencia desfiles](/images/maxi_pendientes_tendencia_5-min.jpg)\[/one\_half\] \[one\_half\_last padding= "0 0 0 3px"\]![maxi pendientes tendencia desfiles](/images/maxi_pendientes_tendencia_6-min.jpg)\[/one\_half\_last\]
+ *![maxi pendientes tendencia desfiles](/images/maxi_pendientes_tendencia_3-min.jpg)*   *![maxi pendientes tendencia desfiles](/images/maxi_pendientes_tendencia_4-min.jpg)*  *![maxi pendientes tendencia desfiles](/images/maxi_pendientes_tendencia_5-min.jpg)*   *![maxi pendientes tendencia desfiles](/images/maxi_pendientes_tendencia_6-min.jpg)* 
 
 ### Maxi pendientes, plata vs color
 
 Prabal Gurung, Burberry, Erdem y Topshop suben de nivel. Apuestan por unos pendientes de estilo luxury, en plata y con aplicaciones de brillantes. El resultado es puro lujo, combinado con infinidad de looks diferentes: desde los más masculinos de Burberry hasta los más femeninos de Erdem. Las perlas y los brillantitos aportan ese toque chic a los pendientes que caen en cascada, en algunos casos llegando a sobrepasar el hombro.
 
-\[one\_half padding="0 3px 0 0"\]![maxi pendientes tendencia desfiles](/images/maxi_pendientes_tendencia_7-min.jpg)\[/one\_half\] \[one\_half\_last padding= "0 0 0 3px"\]![maxi pendientes tendencia desfiles](/images/maxi_pendientes_tendencia_8-min.jpg)\[/one\_half\_last\]
+ *![maxi pendientes tendencia desfiles](/images/maxi_pendientes_tendencia_7-min.jpg)*   *![maxi pendientes tendencia desfiles](/images/maxi_pendientes_tendencia_8-min.jpg)* 
 
 Los italianos apuestan fuerte por los diseños más coloridos. Firmas como Marni o Etro aportaron colorido a sus diseños con maxi pendientes largos y repletos de color. Ambas propuestas llenas de personalidad, perfectas para lucir con estilismos o looks más sencillos. De esta manera, se otorgará todo el protagonismo al pendiente, en su forma y color.
 
-\[one\_half padding="0 3px 0 0"\]![maxi pendientes tendencia desfiles](/images/maxi_pendientes_tendencia_9-min.jpg)\[/one\_half\] \[one\_half\_last padding= "0 0 0 3px"\]![maxi pendientes tendencia desfiles](/images/maxi_pendientes_tendencia_10-min.jpg)\[/one\_half\_last\]
+ *![maxi pendientes tendencia desfiles](/images/maxi_pendientes_tendencia_9-min.jpg)*   *![maxi pendientes tendencia desfiles](/images/maxi_pendientes_tendencia_10-min.jpg)* 
 
 ### Desde París... Con mucho lujo
 

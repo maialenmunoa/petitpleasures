@@ -33,7 +33,7 @@ Así lo apodaron su madre y sus amigas. El vestido de **Pronovias** que lució L
 
 Leticia completó su vestido de novia de alfombra roja con una corona de [**Suma Cruz**](http://www.sumacruz.com/). Además, calzó unos zapatos de salón en color rosa, brilló con unos pendientes de su abuela paterna y con una pulsera que perteneció a la familia de su madre. Como detalle especial, lució el anillo de pedida de la madre de Barry y otro anillo con un zafiro (su algo azul) de la tía del novio, herencia de su abuela paterna. Por último, la novia llevó el anillo de casada en la mano izquierda, más cercana al corazón y debajo del de pedida, como se hace tradicionalmente en Escocia.
 
-\[one\_half padding="0 10px 0 0"\]![pronovias-vestido-novia-leticia-barry-7](/images/pronovias-vestido-novia-leticia-barry-18.jpg)\[/one\_half\]\[one\_half\_last padding= "0 0 0 10px"\]![pronovias-vestido-novia-leticia-barry-7](/images/pronovias-vestido-novia-leticia-barry-19.jpg)\[/one\_half\_last\]
+ *![pronovias-vestido-novia-leticia-barry-7](/images/pronovias-vestido-novia-leticia-barry-18.jpg)*  *![pronovias-vestido-novia-leticia-barry-7](/images/pronovias-vestido-novia-leticia-barry-19.jpg)* 
 
 ![pronovias-vestido-novia-leticia-barry-7](/images/pronovias-vestido-novia-leticia-barry-20.jpg)
 
@@ -75,6 +75,6 @@ El otoño, el mes de octubre y el color burdeos. Tres líneas claras de inspirac
 
 El [**Palacio de Aldovea**](http://www.aldoveacatering.com/) en **San Fernando de Henares** (Comunidad de Madrid) fue testigo del amor, de la unión de culturas y de la perfecta mezcla de tradiciones. En la boda de Leticia y Barry hubo gaitero escocés e invitados con _Kilt_ (falda típica escocesa). Sonó 'Tender' de Blur, la primera canción que escucharon juntos de camino a Agra, y se encendieron velas para homenajear a los seres queridos ausentes. Pero sobre todo hubo amor, complicidad y altas dosis de cariño. Una boda preciosa captada bajo el objetivo mágico de [**Sara Lobla**](http://saralobla.com/). "Sus fotos son mágicas y desprenden algo que desde el principio nos enamoró. Queríamos que contase nuestra historia desde la primera conversación que tuvimos con ella".
 
-\[one\_half padding="0 10px 0 0"\]![pronovias-vestido-novia-leticia-barry-7](/images/pronovias-vestido-novia-leticia-barry-10.jpg)\[/one\_half\]\[one\_half\_last padding= "0 0 0 10px"\]![pronovias-vestido-novia-leticia-barry-7](/images/pronovias-vestido-novia-leticia-barry-11.jpg)\[/one\_half\_last\]
+ *![pronovias-vestido-novia-leticia-barry-7](/images/pronovias-vestido-novia-leticia-barry-10.jpg)*  *![pronovias-vestido-novia-leticia-barry-7](/images/pronovias-vestido-novia-leticia-barry-11.jpg)* 
 
 **Fotografía:** Sara Lobla / **Vestido novia:** Pronovias / **Corona:** Suma Cruz / **Maquillaje y Peluquería:** Lau Pérez / **Traje novio:** Nicolson’s Kilt Makers / **Flores:** The Flower Power / **Lugar:** Palacio de Aldovea / **Música:** Dándote Ritmo / **Vídeo:** Lluch & Soler / **Edición:** Anker Prod

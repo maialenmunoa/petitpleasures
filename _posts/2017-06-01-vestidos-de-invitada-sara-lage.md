@@ -23,15 +23,15 @@ Tras varios años dedicada al diseño y confección a medida, esta joven modista
 
 ![vestidos de invitada sara lage](/images/vestidos-de-invitada-sara-lage-2.jpg)
 
-\[one\_half padding="0 10px 0 0"\]![vestidos de invitada sara lage](/images/vestidos-de-invitada-sara-lage-3-1.jpg)\[/one\_half\]\[one\_half\_last padding= "0 0 0 10px"\]![vestidos de invitada sara lage](/images/vestidos-de-invitada-sara-lage-3.jpg)\[/one\_half\_last\]
+ *![vestidos de invitada sara lage](/images/vestidos-de-invitada-sara-lage-3-1.jpg)*  *![vestidos de invitada sara lage](/images/vestidos-de-invitada-sara-lage-3.jpg)* 
 
 La colección de invitada de Sara Lage se compone de diseños muy versátiles, concebidos para reutilizarse una y otra vez. ¿Cómo? Descomponiendo cada look para crear estilismos diferentes que se adapten a tus necesidades. Por ejemplo, Madame D. cuenta con vestidos que se convierten en falda y top para usar por separado, para lucirlas como prendas independientes en un look de diario.
 
 ![vestidos de invitada sara lage](/images/vestidos-de-invitada-sara-lage-4.jpg)
 
-\[one\_half padding="0 10px 0 0"\]![vestidos de invitada sara lage](/images/vestidos-de-invitada-sara-lage-5.jpg)\[/one\_half\]\[one\_half\_last padding= "0 0 0 10px"\]![vestidos de invitada sara lage](/images/vestidos-de-invitada-sara-lage-5-1.jpg)\[/one\_half\_last\]
+ *![vestidos de invitada sara lage](/images/vestidos-de-invitada-sara-lage-5.jpg)*  *![vestidos de invitada sara lage](/images/vestidos-de-invitada-sara-lage-5-1.jpg)* 
 
-\[one\_half padding="0 10px 0 0"\]![vestidos de invitada sara lage](/images/vestidos-de-invitada-sara-lage-6.jpg)\[/one\_half\]\[one\_half\_last padding= "0 0 0 10px"\]![vestidos de invitada sara lage](/images/vestidos-de-invitada-sara-lage-6-1.jpg)\[/one\_half\_last\]
+ *![vestidos de invitada sara lage](/images/vestidos-de-invitada-sara-lage-6.jpg)*  *![vestidos de invitada sara lage](/images/vestidos-de-invitada-sara-lage-6-1.jpg)* 
 
 Las prendas de exterior de esta colección están confeccionadas con tejidos ricos que tienen posibilidades infinitas. ¿Qué me decís del kimono? Una auténtica obra de arte, única, se mire por donde se mire. Me lo imagino en un look de invitada pero también con unos jeans y las zapatillas de moda. Ya sabes, la idea es que des más de un uso a cada prenda de Madame D.
 
@@ -39,7 +39,7 @@ Las prendas de exterior de esta colección están confeccionadas con tejidos ric
 
 ![vestidos de invitada sara lage](/images/vestidos-de-invitada-sara-lage-7.jpg)
 
-\[one\_half padding="0 10px 0 0"\]![vestidos de invitada sara lage](/images/vestidos-de-invitada-sara-lage-9-1.jpg)\[/one\_half\]\[one\_half\_last padding= "0 0 0 10px"\]![vestidos de invitada sara lage](/images/vestidos-de-invitada-sara-lage-9.jpg)\[/one\_half\_last\]
+ *![vestidos de invitada sara lage](/images/vestidos-de-invitada-sara-lage-9-1.jpg)*  *![vestidos de invitada sara lage](/images/vestidos-de-invitada-sara-lage-9.jpg)* 
 
 ![vestidos de invitada sara lage](/images/vestidos-de-invitada-sara-lage-10.jpg)
 

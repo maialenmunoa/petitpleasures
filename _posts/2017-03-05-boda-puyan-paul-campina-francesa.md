@@ -33,7 +33,7 @@ Su colorido [vestido de novia](https://petitpleasures.com/vestidos/) lo confecci
 
 ![](/images/boda-puyan-paul-campina-francesa-petit-pleasures-8.jpg)
 
-\[one\_half padding="0 10px 0 0"\]![boda puyan paul campina francesa petit pleasures](/images/boda-puyan-paul-campina-francesa-petit-pleasures-9.jpg)\[/one\_half\]\[one\_half\_last padding= "0 0 0 10px"\] ![](/images/boda-puyan-paul-campina-francesa-petit-pleasures-10.jpg)\[/one\_half\_last\]
+ *![boda puyan paul campina francesa petit pleasures](/images/boda-puyan-paul-campina-francesa-petit-pleasures-9.jpg)*  * ![](/images/boda-puyan-paul-campina-francesa-petit-pleasures-10.jpg)* 
 
 ![boda puyan paul campina francesa petit pleasures](/images/boda-puyan-paul-campina-francesa-petit-pleasures-11.jpg)
 

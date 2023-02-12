@@ -32,7 +32,7 @@ Los **accesorios para el pelo** de [**Martina Dorta**](http://www.martinadorta.c
 
 ![boda junto al mar fortia editorial inspiracion ](/images/boda-junto-al-mar-fortia-editorial-inspiracion-8.jpg)
 
-\[one\_half padding="0 10px 0 0"\]![boda junto al mar fortia editorial inspiracion ](/images/boda-junto-al-mar-fortia-editorial-inspiracion-9.jpg)\[/one\_half\]\[one\_half\_last padding= "0 0 0 10px"\] ![](/images/boda-junto-al-mar-fortia-editorial-inspiracion-10.jpg)\[/one\_half\_last\]
+ *![boda junto al mar fortia editorial inspiracion ](/images/boda-junto-al-mar-fortia-editorial-inspiracion-9.jpg)*  * ![](/images/boda-junto-al-mar-fortia-editorial-inspiracion-10.jpg)* 
 
 ![boda junto al mar fortia editorial inspiracion ](/images/boda-junto-al-mar-fortia-editorial-inspiracion-11.jpg)
 

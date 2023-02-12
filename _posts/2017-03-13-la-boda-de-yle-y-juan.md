@@ -21,11 +21,11 @@ Que se lo pregunten a ellos. Yle y Juan vivían en **Nueva York** cuando empezar
 
 El feeling, la seriedad y la implicación de los proveedores fueron claves a la hora de escogerlos a miles de kilómetros de distancia. “Invito a todos los novios a que disfruten de esta etapa con alegría, ilusión y cierto sentido común. A veces escucho de novias que no duermen, que no comen o que están angustiadas ocho meses antes. Esto es una fiesta llena de gente querida, no un examen de vida o muerte. Así hay que vivirlo y así lo vivimos nosotros”.
 
-\[one\_half padding="0 10px 0 0"\]![la boda de yle y juan petit pleasures](/images/la-boda-de-yle-y-juan-2.jpg)\[/one\_half\]\[one\_half\_last padding= "0 0 0 10px"\]![la boda de yle y juan petit pleasures](/images/la-boda-de-yle-y-juan-3.jpg)\[/one\_half\_last\]
+ *![la boda de yle y juan petit pleasures](/images/la-boda-de-yle-y-juan-2.jpg)*  *![la boda de yle y juan petit pleasures](/images/la-boda-de-yle-y-juan-3.jpg)* 
 
 ![la boda de yle y juan petit pleasures](/images/la-boda-de-yle-y-juan-4.jpg)
 
-\[one\_half padding="0 10px 0 0"\]![la boda de yle y juan petit pleasures](/images/la-boda-de-yle-y-juan-5.jpg)\[/one\_half\]\[one\_half\_last padding= "0 0 0 10px"\]![la boda de yle y juan petit pleasures](/images/la-boda-de-yle-y-juan-6.jpg)\[/one\_half\_last\]
+ *![la boda de yle y juan petit pleasures](/images/la-boda-de-yle-y-juan-5.jpg)*  *![la boda de yle y juan petit pleasures](/images/la-boda-de-yle-y-juan-6.jpg)* 
 
 ### El vestido de la novia
 
@@ -73,9 +73,9 @@ La boda se celebró en la misma finca, originariamente propiedad del primer Duqu
 
 ![la boda de yle y juan petit pleasures](/images/la-boda-de-yle-y-juan-21.jpg)
 
-\[one\_half padding="0 10px 0 0"\]![la boda de yle y juan petit pleasures](/images/la-boda-de-yle-y-juan-22.jpg)\[/one\_half\]\[one\_half\_last padding= "0 0 0 10px"\]![la boda de yle y juan petit pleasures](/images/la-boda-de-yle-y-juan-23.jpg)\[/one\_half\_last\]
+ *![la boda de yle y juan petit pleasures](/images/la-boda-de-yle-y-juan-22.jpg)*  *![la boda de yle y juan petit pleasures](/images/la-boda-de-yle-y-juan-23.jpg)* 
 
-\[one\_half padding="0 10px 0 0"\]![la boda de yle y juan petit pleasures](/images/la-boda-de-yle-y-juan-24.jpg)\[/one\_half\]\[one\_half\_last padding= "0 0 0 10px"\]![la boda de yle y juan petit pleasures](/images/la-boda-de-yle-y-juan-25.jpg)\[/one\_half\_last\]
+ *![la boda de yle y juan petit pleasures](/images/la-boda-de-yle-y-juan-24.jpg)*  *![la boda de yle y juan petit pleasures](/images/la-boda-de-yle-y-juan-25.jpg)* 
 
 A pocos metros de la torre se encuentra la **Capilla de San Jorge**, una construcción que recuerda a un templo romano y cuya construcción se basó en la Madeleine de París. Yle llegó del brazo de su padre en un **Escarabajo Rooftop del 58** y con la lluvia como testigo. “Ahí mismo me di cuenta que iba a ser la novia más bendecida de todas las novias y en parte me gustó”.
 
@@ -83,7 +83,7 @@ A pocos metros de la torre se encuentra la **Capilla de San Jorge**, una constru
 
 ![la boda de yle y juan petit pleasures](/images/la-boda-de-yle-y-juan-27.jpg)
 
-\[one\_half padding="0 10px 0 0"\]![la boda de yle y juan petit pleasures](/images/la-boda-de-yle-y-juan-28.jpg)\[/one\_half\]\[one\_half\_last padding= "0 0 0 10px"\]![la boda de yle y juan petit pleasures](/images/la-boda-de-yle-y-juan-29.jpg)\[/one\_half\_last\]
+ *![la boda de yle y juan petit pleasures](/images/la-boda-de-yle-y-juan-28.jpg)*  *![la boda de yle y juan petit pleasures](/images/la-boda-de-yle-y-juan-29.jpg)* 
 
 ![la boda de yle y juan petit pleasures](/images/la-boda-de-yle-y-juan-30.jpg)
 
@@ -91,7 +91,7 @@ A pocos metros de la torre se encuentra la **Capilla de San Jorge**, una constru
 
 Para respetar los alrededores de la finca, los novios apostaron por una **decoración** que fuera acorde con el **paisaje**: Grandes ramajes verdes, flores blancas para adornar el comedor, muebles del palacio originales de la época como sofás, mesas, aparadores, candelabros, una cama tapizada y una bañera en forma de hielera, entre otros objetos decorativos.
 
-\[one\_half padding="0 10px 0 0"\]![la boda de yle y juan petit pleasures](/images/la-boda-de-yle-y-juan-32.jpg)\[/one\_half\]\[one\_half\_last padding= "0 0 0 10px"\]![la boda de yle y juan petit pleasures](/images/la-boda-de-yle-y-juan-33.jpg)\[/one\_half\_last\]
+ *![la boda de yle y juan petit pleasures](/images/la-boda-de-yle-y-juan-32.jpg)*  *![la boda de yle y juan petit pleasures](/images/la-boda-de-yle-y-juan-33.jpg)* 
 
 ![la boda de yle y juan petit pleasures](/images/la-boda-de-yle-y-juan-34.jpg)
 
@@ -113,7 +113,7 @@ Y para bailar bajo las estrellas: **Borja de Hey Mickey**.
 
 “La llegada al altar y sentir, aun rodeados de gente, que no hay nadie más que él y tú. Por un instante te das cuenta que no puedes controlar nada y que el estar enamorada te hace simple, vulnerable, frágil. Es ahí cuando toda esa puesta en escena o falso atrezzo detrás de una boda se desvanece y el actor principal llamado amor cobra verdaderamente sentido. Te sientes viva. Feliz.”
 
-\[one\_half padding="0 10px 0 0"\]![la boda de yle y juan petit pleasures](/images/la-boda-de-yle-y-juan-36.jpg)\[/one\_half\]\[one\_half\_last padding= "0 0 0 10px"\]![la boda de yle y juan petit pleasures](/images/la-boda-de-yle-y-juan-37.jpg)\[/one\_half\_last\]
+ *![la boda de yle y juan petit pleasures](/images/la-boda-de-yle-y-juan-36.jpg)*  *![la boda de yle y juan petit pleasures](/images/la-boda-de-yle-y-juan-37.jpg)* 
 
 ![la boda de yle y juan petit pleasures](/images/la-boda-de-yle-y-juan-38.jpg)
 

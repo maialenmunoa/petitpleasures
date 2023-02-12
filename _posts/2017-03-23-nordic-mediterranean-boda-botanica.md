@@ -22,7 +22,7 @@ Una historia de amor real con una **boda botánica** ficticia. Es como si Irantz
 
 En su deseo por resaltar la mezcla de culturas, Irantzu contó con una diseñadora Top: [**Laura Escribano**](https://www.lauraescribanoatelier.com/). Probablemente, una de las creadoras de nuestro país con mayor cantidad de referencias artísticas, históricas y culturales en su cabeza. ¿El resultado? Un primer [**vestido de novia**](https://petitpleasures.com/vestidos/) inspirado en los orígenes de Jonas, “buscando la complicidad entre ellos y las dos culturas a través de tonos más apagados”, cuenta Laura Escribano.
 
-\[one\_half padding="0 10px 0 0"\]![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-1.jpg)\[/one\_half\]\[one\_half\_last padding= "0 0 0 10px"\]![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-2.jpg)\[/one\_half\_last\]
+ *![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-1.jpg)*  *![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-2.jpg)* 
 
 ![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-3.jpg)
 
@@ -30,7 +30,7 @@ En su deseo por resaltar la mezcla de culturas, Irantzu contó con una diseñado
 
 ![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-5.jpg)
 
-\[one\_half padding="0 10px 0 0"\]![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-6.jpg)\[/one\_half\]\[one\_half\_last padding= "0 0 0 10px"\]![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-7.jpg)\[/one\_half\_last\]
+ *![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-6.jpg)*  *![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-7.jpg)* 
 
 ![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-8.jpg)
 
@@ -98,7 +98,7 @@ Irantzu se transforma en una auténtica diva mediterránea. Para combinar el seg
 
 ![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-29.jpg)
 
-\[one\_half padding="0 10px 0 0"\]![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-30.jpg)\[/one\_half\]\[one\_half\_last padding= "0 0 0 10px"\]![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-31.jpg)\[/one\_half\_last\]
+ *![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-30.jpg)*  *![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-31.jpg)* 
 
 “El corpiño estaba realizado con un **encaje antiguo de algodón** que rescaté de unas antiguas cortinas de un anticuario de Extremadura. La falda se realizó en un **tafetán rústico de lino con seda**. Para realizar el corte del vestido nos basamos en el dibujo en planta de una flor, remarcando la cintura con un lazo de terciopelo granate”.
 
