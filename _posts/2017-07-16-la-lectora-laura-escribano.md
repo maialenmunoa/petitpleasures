@@ -1,4 +1,5 @@
 ---
+layout: post
 title: "La Lectora, un relato de Laura Escribano"
 date: "2017-07-16"
 categories: 

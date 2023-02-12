@@ -1,4 +1,5 @@
 ---
+layout: post
 title: "Filomena y sus 11 amigas"
 date: "2017-03-09"
 categories: 

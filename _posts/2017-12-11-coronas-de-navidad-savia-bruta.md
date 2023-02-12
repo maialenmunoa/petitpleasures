@@ -1,4 +1,5 @@
 ---
+layout: post
 title: "Coronas de Navidad: Taller clandestino en Savia Bruta"
 date: "2017-12-11"
 categories: 

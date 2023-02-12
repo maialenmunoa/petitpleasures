@@ -1,4 +1,5 @@
 ---
+layout: post
 title: "De Miami a Donosti: La boda de Catie y Roger"
 date: "2017-06-29"
 categories: 

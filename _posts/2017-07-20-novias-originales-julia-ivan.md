@@ -1,4 +1,5 @@
 ---
+layout: post
 title: "La boda de Julia e Iván"
 date: "2017-07-20"
 categories: 

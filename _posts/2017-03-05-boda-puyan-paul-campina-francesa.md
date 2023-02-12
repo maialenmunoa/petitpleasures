@@ -1,4 +1,5 @@
 ---
+layout: post
 title: "La boda de Puyan y Paul en la campiña francesa"
 date: "2017-03-05"
 categories: 

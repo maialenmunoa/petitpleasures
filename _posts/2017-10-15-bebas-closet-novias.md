@@ -1,4 +1,5 @@
 ---
+layout: post
 title: "Beba's Closet presenta Francesca's Angel, su nueva colección cápsula para novias"
 date: "2017-10-15"
 categories: 

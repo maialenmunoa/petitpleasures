@@ -1,4 +1,5 @@
 ---
+layout: post
 title: "Cómo hacer un moño alto Top Knot"
 date: "2017-05-16"
 categories: 

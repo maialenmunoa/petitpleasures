@@ -1,4 +1,5 @@
 ---
+layout: post
 title: "La boda de Yle y Juan"
 date: "2017-03-13"
 categories: 

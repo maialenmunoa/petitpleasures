@@ -1,4 +1,5 @@
 ---
+layout: post
 title: "La boda de Leticia y Barry"
 date: "2017-06-20"
 categories: 

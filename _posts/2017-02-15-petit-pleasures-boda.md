@@ -1,4 +1,5 @@
 ---
+layout: post
 title: "Pequeños placeres para inspirar tu boda"
 date: "2017-02-15"
 categories: 

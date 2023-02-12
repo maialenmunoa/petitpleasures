@@ -1,4 +1,5 @@
 ---
+layout: post
 title: "Atelier Couture 2017: Los vestidos de novia más bonitos"
 date: "2017-04-06"
 categories: 

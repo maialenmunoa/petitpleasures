@@ -1,4 +1,5 @@
 ---
+layout: post
 title: "La boda de Eleonora y Jaime"
 date: "2017-05-30"
 categories: 

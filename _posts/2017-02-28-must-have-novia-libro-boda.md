@@ -1,4 +1,5 @@
 ---
+layout: post
 title: "'El Must Have de la Novia', el libro que necesitas para organizar tu boda"
 date: "2017-02-28"
 categories: 

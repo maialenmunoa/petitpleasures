@@ -1,4 +1,5 @@
 ---
+layout: post
 title: "Med, la nueva colección de novia de Marta Martí"
 date: "2017-06-05"
 categories: 

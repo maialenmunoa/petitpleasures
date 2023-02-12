@@ -1,4 +1,5 @@
 ---
+layout: post
 title: "'Memories of Madrid', la nueva colección de Beba's Closet"
 date: "2017-05-21"
 categories: 

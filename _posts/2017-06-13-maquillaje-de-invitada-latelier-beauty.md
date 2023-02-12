@@ -1,4 +1,5 @@
 ---
+layout: post
 title: "L’Atelier Beauty: ¿Cómo crear un maquillaje de invitada?"
 date: "2017-06-13"
 categories: 

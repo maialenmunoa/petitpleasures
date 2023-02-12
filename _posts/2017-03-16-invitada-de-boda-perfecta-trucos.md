@@ -1,4 +1,5 @@
 ---
+layout: post
 title: "5 trucos para ser la invitada de boda perfecta"
 date: "2017-03-16"
 categories: 

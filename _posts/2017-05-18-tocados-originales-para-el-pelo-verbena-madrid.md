@@ -1,4 +1,5 @@
 ---
+layout: post
 title: "Darwin, la nueva colección de Verbena Madrid"
 date: "2017-05-18"
 categories: 

@@ -1,4 +1,5 @@
 ---
+layout: post
 title: "Vestidos de invitada: larga vida a Madame D. de Sara Lage"
 date: "2017-06-01"
 categories: 

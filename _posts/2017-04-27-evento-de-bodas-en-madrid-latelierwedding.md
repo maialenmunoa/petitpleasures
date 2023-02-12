@@ -1,4 +1,5 @@
 ---
+layout: post
 title: "#LATELIERWEDDING, el sarao que no te puedes perder"
 date: "2017-04-27"
 categories: 

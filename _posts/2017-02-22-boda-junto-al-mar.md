@@ -1,4 +1,5 @@
 ---
+layout: post
 title: "¿Boda junto al mar? Fortia es tu inspiración"
 date: "2017-02-22"
 categories: 

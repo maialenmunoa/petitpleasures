@@ -1,4 +1,5 @@
 ---
+layout: post
 title: "Los maxi pendientes se consolidan como tendencia"
 date: "2017-09-28"
 categories: 

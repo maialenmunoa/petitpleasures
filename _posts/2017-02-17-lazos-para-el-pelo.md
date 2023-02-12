@@ -1,4 +1,5 @@
 ---
+layout: post
 title: "Lazos para el pelo con... ¿Cintas de regalo?"
 date: "2017-02-17"
 categories: 

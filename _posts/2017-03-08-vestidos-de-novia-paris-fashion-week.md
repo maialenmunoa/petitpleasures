@@ -1,4 +1,5 @@
 ---
+layout: post
 title: "Los vestidos de novia de París Fashion Week Otoño-Invierno 2017/2018"
 date: "2017-03-08"
 categories: 

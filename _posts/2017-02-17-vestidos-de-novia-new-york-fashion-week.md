@@ -1,4 +1,5 @@
 ---
+layout: post
 title: "Los vestidos de novia de New York Fashion Week 2017"
 date: "2017-02-17"
 categories: 

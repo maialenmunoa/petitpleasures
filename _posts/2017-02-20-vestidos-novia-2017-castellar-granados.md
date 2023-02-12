@@ -1,4 +1,5 @@
 ---
+layout: post
 title: "Los vestidos de novia 2017 de Castellar Granados"
 date: "2017-02-20"
 categories: 

@@ -1,4 +1,5 @@
 ---
+layout: post
 title: "La boda de Cristina y Miguel"
 date: "2018-04-03"
 categories: 

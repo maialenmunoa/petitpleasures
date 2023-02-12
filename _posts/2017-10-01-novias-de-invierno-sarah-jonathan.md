@@ -1,4 +1,5 @@
 ---
+layout: post
 title: "Novias de invierno: La boda de Sarah y Jonathan"
 date: "2017-10-01"
 categories: 

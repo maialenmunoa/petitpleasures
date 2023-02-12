@@ -1,4 +1,5 @@
 ---
+layout: post
 title: "Oscar 2017: Las mejor vestidas de la alfombra roja"
 date: "2017-02-27"
 categories: 

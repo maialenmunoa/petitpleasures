@@ -1,4 +1,5 @@
 ---
+layout: post
 title: "Nordic & Mediterranean, la boda botánica de Irantzu y Jonas"
 date: "2017-03-23"
 categories: 
