@@ -17,6 +17,6 @@ A lo largo de 19 capítulos, el nuevo libro-planificador de [**Fit For Weddings*
 
 Si te casas... 'El Must Have de la Novia' es un imprescindible en tu aventura.
 
-![el must have de la novia libro organizar boda](/images/el-must-have-de-la-novia-libro-organizar-boda-2.jpg "el must have de la novia libro organizar boda") ![el must have de la novia libro organizar boda](/images/el-must-have-de-la-novia-libro-organizar-boda-3.jpg "el must have de la novia libro organizar boda")
+![el must have de la novia libro organizar boda]({{ site.baseurl }}/images/el-must-have-de-la-novia-libro-organizar-boda-2.jpg "el must have de la novia libro organizar boda") ![el must have de la novia libro organizar boda]({{ site.baseurl }}/images/el-must-have-de-la-novia-libro-organizar-boda-3.jpg "el must have de la novia libro organizar boda")
 
 **\*Fotos** cortesía de **Fit For Weddings**

@@ -22,59 +22,59 @@ Una historia de amor real con una **boda botánica** ficticia. Es como si Irantz
 
 En su deseo por resaltar la mezcla de culturas, Irantzu contó con una diseñadora Top: [**Laura Escribano**](https://www.lauraescribanoatelier.com/). Probablemente, una de las creadoras de nuestro país con mayor cantidad de referencias artísticas, históricas y culturales en su cabeza. ¿El resultado? Un primer [**vestido de novia**](https://petitpleasures.com/vestidos/) inspirado en los orígenes de Jonas, “buscando la complicidad entre ellos y las dos culturas a través de tonos más apagados”, cuenta Laura Escribano.
 
- *![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-1.jpg)*  *![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-2.jpg)* 
+ *![boda botanica nordic mediterranean editorial petit pleasures]({{ site.baseurl }}/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-1.jpg)*  *![boda botanica nordic mediterranean editorial petit pleasures]({{ site.baseurl }}/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-2.jpg)* 
 
-![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-3.jpg)
+![boda botanica nordic mediterranean editorial petit pleasures]({{ site.baseurl }}/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-3.jpg)
 
-![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-4.jpg)
+![boda botanica nordic mediterranean editorial petit pleasures]({{ site.baseurl }}/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-4.jpg)
 
-![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-5.jpg)
+![boda botanica nordic mediterranean editorial petit pleasures]({{ site.baseurl }}/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-5.jpg)
 
- *![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-6.jpg)*  *![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-7.jpg)* 
+ *![boda botanica nordic mediterranean editorial petit pleasures]({{ site.baseurl }}/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-6.jpg)*  *![boda botanica nordic mediterranean editorial petit pleasures]({{ site.baseurl }}/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-7.jpg)* 
 
-![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-8.jpg)
+![boda botanica nordic mediterranean editorial petit pleasures]({{ site.baseurl }}/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-8.jpg)
 
-![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-9.jpg)
+![boda botanica nordic mediterranean editorial petit pleasures]({{ site.baseurl }}/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-9.jpg)
 
 En palabras de la diseñadora madrileña, “el primer **look de novia** se compone de un cuerpo realizado con cuatro fragmentos diferentes de **encaje antiguo** y una falda con base de crepé de color té con cuatro capas de **tul blanco**. El vestido termina con un **[lazo](https://petitpleasures.com/lazos-para-el-pelo/) de terciopelo** en color gris plomizo y oscuro rematado con un **lazo Art Decó** de pedrería de 1920”.
 
 Para armonizar el look con el **maquillaje**, [**Helen Joe**](http://www.helenjoemakeup.com/) se inspiró en la naturaleza nórdica. “El primer maquillaje era más natural y delicado, en sintonía con el ambiente que creamos en la finca”, explica la Make Up Artist.
 
-![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-10.jpg)
+![boda botanica nordic mediterranean editorial petit pleasures]({{ site.baseurl }}/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-10.jpg)
 
-![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-11.jpg)
+![boda botanica nordic mediterranean editorial petit pleasures]({{ site.baseurl }}/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-11.jpg)
 
-![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-12.jpg)
+![boda botanica nordic mediterranean editorial petit pleasures]({{ site.baseurl }}/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-12.jpg)
 
-![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-13.jpg)
+![boda botanica nordic mediterranean editorial petit pleasures]({{ site.baseurl }}/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-13.jpg)
 
 ### La botánica como punto de partida
 
 Una mezcla de culturas, sueca y española, a través de la **botánica**. Éste era el deseo de la pareja para celebrar su particular boda en la finca de **La Granja**. Para hacer sus sueños realidad, **Jorge Pascual** de [**Prados Riveros**](http://www.fincapradosriveros.es/) preparó una decoración inspirada en la fusión de vegetación y culturas. Por su parte, las chicas de [**Salón des Fleurs**](http://www.salondesfleurs.es/) realizaron una composición de flores y plantas tan variopintas como helechos, olivo, magnolias, piñas, lavanda, parras, edelweiss, escaramujo, etc.
 
-![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-14.jpg)
+![boda botanica nordic mediterranean editorial petit pleasures]({{ site.baseurl }}/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-14.jpg)
 
-![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-15.jpg)
+![boda botanica nordic mediterranean editorial petit pleasures]({{ site.baseurl }}/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-15.jpg)
 
-![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-16.jpg)
+![boda botanica nordic mediterranean editorial petit pleasures]({{ site.baseurl }}/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-16.jpg)
 
-![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-17.jpg)
+![boda botanica nordic mediterranean editorial petit pleasures]({{ site.baseurl }}/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-17.jpg)
 
-![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-18.jpg)
+![boda botanica nordic mediterranean editorial petit pleasures]({{ site.baseurl }}/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-18.jpg)
 
-![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-19.jpg)
+![boda botanica nordic mediterranean editorial petit pleasures]({{ site.baseurl }}/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-19.jpg)
 
-![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-20.jpg)
+![boda botanica nordic mediterranean editorial petit pleasures]({{ site.baseurl }}/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-20.jpg)
 
-![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-21.jpg)
+![boda botanica nordic mediterranean editorial petit pleasures]({{ site.baseurl }}/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-21.jpg)
 
-![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-22.jpg)
+![boda botanica nordic mediterranean editorial petit pleasures]({{ site.baseurl }}/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-22.jpg)
 
-![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-23.jpg)
+![boda botanica nordic mediterranean editorial petit pleasures]({{ site.baseurl }}/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-23.jpg)
 
-![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-24.jpg)
+![boda botanica nordic mediterranean editorial petit pleasures]({{ site.baseurl }}/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-24.jpg)
 
-![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-25.jpg)
+![boda botanica nordic mediterranean editorial petit pleasures]({{ site.baseurl }}/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-25.jpg)
 
 La vajilla de **[Graciela amor al plato](http://gracielaamoralplato.com/)** jugó un papel fundamental en la composición decorativa de Nordic & Mediterranean. “Para esta editorial escogí un dibujo botánico que armonizara con todo. Me decanté por un color neutro que combinara con todos los verdes de la vegetación, la madera de la mesa y las hojas de la decoración floral. Es muy gratificante ver que lo que resulta de ello ocupa su sitio en el conjunto final, con armonía, como en un puzzle”, explica Graciela.
 
@@ -92,25 +92,25 @@ Irantzu se transforma en una auténtica diva mediterránea. Para combinar el seg
 
 “Para el segundo look de novia, le di un estilo más festivo y sensual. Busqué una línea más mediterránea aportándole un cambio de tonalidad, texturas y materiales naturales”, explica Laura Escribano.
 
-![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-27.jpg)
+![boda botanica nordic mediterranean editorial petit pleasures]({{ site.baseurl }}/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-27.jpg)
 
-![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-28.jpg)
+![boda botanica nordic mediterranean editorial petit pleasures]({{ site.baseurl }}/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-28.jpg)
 
-![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-29.jpg)
+![boda botanica nordic mediterranean editorial petit pleasures]({{ site.baseurl }}/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-29.jpg)
 
- *![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-30.jpg)*  *![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-31.jpg)* 
+ *![boda botanica nordic mediterranean editorial petit pleasures]({{ site.baseurl }}/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-30.jpg)*  *![boda botanica nordic mediterranean editorial petit pleasures]({{ site.baseurl }}/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-31.jpg)* 
 
 “El corpiño estaba realizado con un **encaje antiguo de algodón** que rescaté de unas antiguas cortinas de un anticuario de Extremadura. La falda se realizó en un **tafetán rústico de lino con seda**. Para realizar el corte del vestido nos basamos en el dibujo en planta de una flor, remarcando la cintura con un lazo de terciopelo granate”.
 
-![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-32.jpg)
+![boda botanica nordic mediterranean editorial petit pleasures]({{ site.baseurl }}/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-32.jpg)
 
-![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-33.jpg)
+![boda botanica nordic mediterranean editorial petit pleasures]({{ site.baseurl }}/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-33.jpg)
 
-![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-34.jpg)
+![boda botanica nordic mediterranean editorial petit pleasures]({{ site.baseurl }}/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-34.jpg)
 
-![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-35.jpg)
+![boda botanica nordic mediterranean editorial petit pleasures]({{ site.baseurl }}/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-35.jpg)
 
-![boda botanica nordic mediterranean editorial petit pleasures](/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-36.jpg)
+![boda botanica nordic mediterranean editorial petit pleasures]({{ site.baseurl }}/images/boda-botanica-nordic-mediterranean-editorial-petit-pleasures-36.jpg)
 
 Cuando se apaga el sol se encienden las luces. Irantzu y Jonas bailan hasta el amanecer, esta vez a solas...
 

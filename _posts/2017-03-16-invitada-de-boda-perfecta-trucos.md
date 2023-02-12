@@ -18,7 +18,7 @@ Son cinco pero podrían ser más. Sin dármelas de súper experta en nada, recop
 
 De acuerdo, no pasa nada por ir de negro a una boda pero piensa que quizá sea más interesante lucir otra opción que aporte luz y color. Sal de tu zona de confort y deja el **_Little Black Dress_** para otro momento, será por ocasiones... Si eres de las que no puedes renunciar al negro, te propongo que lo luzcas en algún detalle o prenda pero nunca de pies a cabeza. Te lo dice una auténtica _black-lover_.
 
- *![invitada de boda perfecta trajes petit pleasures](/images/invitada-de-boda-perfecta-trucos-trajes-petit-pleasures-1.jpg)*  *![invitada de boda perfecta trajes petit pleasures](/images/invitada-de-boda-perfecta-trucos-trajes-petit-pleasures-2.jpg)* 
+ *![invitada de boda perfecta trajes petit pleasures]({{ site.baseurl }}/images/invitada-de-boda-perfecta-trucos-trajes-petit-pleasures-1.jpg)*  *![invitada de boda perfecta trajes petit pleasures]({{ site.baseurl }}/images/invitada-de-boda-perfecta-trucos-trajes-petit-pleasures-2.jpg)* 
 
 ### 2\. Di sí a los trajes
 
@@ -28,13 +28,13 @@ Para ser la invitada de boda perfecta no hace falta lucir el vestido más cool d
 
 Es un tópico muy extendido pero todavía hay invitadas que cometen este error. Sufrir de los pies por culpa del calzado te arruinará el día y no pensarás en otra cosa que no sea bajarte de los tacones. Si quieres estrenar zapatos, úsalos antes del día de la boda para ponerlos a prueba y para que se adapten a tus pies. Piénsalo bien y recuerda aquella noche que volviste a casa con los tacones en la mano...
 
- *![invitada de boda perfecta zapatos petit pleasures](/images/invitada-de-boda-perfecta-trucos-zapatos-petit-pleasures-1.jpg)*  *![invitada de boda perfecta zapatos petit pleasures](/images/invitada-de-boda-perfecta-trucos-zapatos-petit-pleasures-2.jpg)* 
+ *![invitada de boda perfecta zapatos petit pleasures]({{ site.baseurl }}/images/invitada-de-boda-perfecta-trucos-zapatos-petit-pleasures-1.jpg)*  *![invitada de boda perfecta zapatos petit pleasures]({{ site.baseurl }}/images/invitada-de-boda-perfecta-trucos-zapatos-petit-pleasures-2.jpg)* 
 
 ### 3 b. Y recuerda, no estás obligada a llevar taconazos
 
 A 16 de marzo de 2017 es un error pensar que no iremos apropiadas a una boda si no nos calzamos unos zapatos de tacón. Puedes ser la invitada de boda perfecta, lucir femenina y elegante gracias a firmas como **Gucci** o **Dior** que apuestan por el tacón moderado. ¿Te imaginas llevar unas _slipper_ destalonadas o unos _kitten heels_ a una boda? ¡Yo sí!
 
- *![invitada de boda perfecta lazos petit pleasures](/images/invitada-de-boda-perfecta-trucos-lazos-petit-pleasures-1.jpg)*  *![invitada de boda perfecta lazos petit pleasures](/images/invitada-de-boda-perfecta-trucos-lazos-petit-pleasures-2.jpg)* 
+ *![invitada de boda perfecta lazos petit pleasures]({{ site.baseurl }}/images/invitada-de-boda-perfecta-trucos-lazos-petit-pleasures-1.jpg)*  *![invitada de boda perfecta lazos petit pleasures]({{ site.baseurl }}/images/invitada-de-boda-perfecta-trucos-lazos-petit-pleasures-2.jpg)* 
 
 ### 4\. Cambia la pamela por un lazo
 

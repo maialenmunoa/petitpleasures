@@ -11,13 +11,13 @@ Cristina y Miguel. Una abogada y un psicólogo. Pamplonicas de nacimiento (y de 
 
 La pareja vivía ya en Londres cuando comenzaron todos los preparativos de la boda, por ello tuvieron que organizarla a distancia. “Los tres últimos meses fueron un poco estresantes debido a problemas de última hora (nuestro sacerdote no pudo oficiar la ceremonia y tuvimos que buscar un reemplazo a 1-2 meses de la boda)”.
 
-![La boda de Cristina y Miguel](/images/la-boda-de-cristina-miguel-2-min-1.jpg) ![La boda de Cristina y Miguel](/images/la-boda-de-cristina-miguel-3-min-1.jpg) ![La boda de Cristina y Miguel](/images/la-boda-de-cristina-miguel-5-min.jpg) ![La boda de Cristina y Miguel](/images/la-boda-de-cristina-miguel-6-min.jpg) ![La boda de Cristina y Miguel](/images/la-boda-de-cristina-miguel-7-min.jpg)
+![La boda de Cristina y Miguel]({{ site.baseurl }}/images/la-boda-de-cristina-miguel-2-min-1.jpg) ![La boda de Cristina y Miguel]({{ site.baseurl }}/images/la-boda-de-cristina-miguel-3-min-1.jpg) ![La boda de Cristina y Miguel]({{ site.baseurl }}/images/la-boda-de-cristina-miguel-5-min.jpg) ![La boda de Cristina y Miguel]({{ site.baseurl }}/images/la-boda-de-cristina-miguel-6-min.jpg) ![La boda de Cristina y Miguel]({{ site.baseurl }}/images/la-boda-de-cristina-miguel-7-min.jpg)
 
 El hecho de casarse en Francia tampoco agilizó ni facilitó las cosas. Nadie dijo que fuera fácil pero Cristina recuerda con cariño que “volveríamos a meternos en el mismo lío otra vez”. Visitaron el pueblo de Urrugne y su iglesia para ver qué les transmitía y… ¡Magia! “Cuando entramos a la iglesia nos quedamos sin palabras. Aún recuerdo que se me puso el vello de punta. En ese mismo momento decidimos que nos casaríamos en esa iglesia”, explica la novia.
 
 ### El vestido de novia de Cristina: Romántico y con un toque barroco
 
- *![La boda de Cristina y Miguel](/images/la-boda-cristina-miguel-vestido-novia-1-min.jpg)*   *![La boda de Cristina y Miguel](/images/la-boda-cristina-miguel-portada-vestido-novia-2-min.jpg)* ![La boda de Cristina y Miguel](/images/la-boda-cristina-miguel-portada-vestido-novia-3-min.jpg) *![La boda de Cristina y Miguel](/images/la-boda-cristina-miguel-portada-vestido-novia-4-min.jpg)*   *![La boda de Cristina y Miguel](/images/la-boda-cristina-miguel-portada-vestido-novia-5-min.jpg)*  *![La boda de Cristina y Miguel](/images/la-boda-cristina-miguel-portada-vestido-novia-6-min.jpg)*   *![La boda de Cristina y Miguel](/images/la-boda-cristina-miguel-portada-vestido-novia-7-min.jpg)* ![La boda de Cristina y Miguel](/images/la-boda-cristina-miguel-portada-vestido-novia-8-min.jpg)
+ *![La boda de Cristina y Miguel]({{ site.baseurl }}/images/la-boda-cristina-miguel-vestido-novia-1-min.jpg)*   *![La boda de Cristina y Miguel]({{ site.baseurl }}/images/la-boda-cristina-miguel-portada-vestido-novia-2-min.jpg)* ![La boda de Cristina y Miguel]({{ site.baseurl }}/images/la-boda-cristina-miguel-portada-vestido-novia-3-min.jpg) *![La boda de Cristina y Miguel]({{ site.baseurl }}/images/la-boda-cristina-miguel-portada-vestido-novia-4-min.jpg)*   *![La boda de Cristina y Miguel]({{ site.baseurl }}/images/la-boda-cristina-miguel-portada-vestido-novia-5-min.jpg)*  *![La boda de Cristina y Miguel]({{ site.baseurl }}/images/la-boda-cristina-miguel-portada-vestido-novia-6-min.jpg)*   *![La boda de Cristina y Miguel]({{ site.baseurl }}/images/la-boda-cristina-miguel-portada-vestido-novia-7-min.jpg)* ![La boda de Cristina y Miguel]({{ site.baseurl }}/images/la-boda-cristina-miguel-portada-vestido-novia-8-min.jpg)
 
 La elección del vestido de novia sacó ese lado indeciso que Cristina desconocía. Sin embargo, la novia llevaba una idea más o menos formada de lo que quería. “Me enamoré de una falda de organza de [Beba’s Closet](https://petitpleasures.com/bebas-closet-novias/). Además, Belen Barbero, diseñadora y directora creativa de la firma, me transmitió un montón de paz y tranquilidad (lo que más necesitaba en ese momento). A pesar de que el estilo y la tela de la falda estaban elegidas, di mil vueltas hasta crear el vestido final”.
 
@@ -27,11 +27,11 @@ En cuanto a los zapatos, Cristina buscaba comodidad ante todo. “Cuando vi las 
 
 ### Una mesa en forma de T, flores románticas y luces de verbena
 
-![La boda de Cristina y Miguel](/images/la-boda-cristina-miguel-1-min.jpg) ![La boda de Cristina y Miguel](/images/la-boda-cristina-miguel-2-min.jpg)
+![La boda de Cristina y Miguel]({{ site.baseurl }}/images/la-boda-cristina-miguel-1-min.jpg) ![La boda de Cristina y Miguel]({{ site.baseurl }}/images/la-boda-cristina-miguel-2-min.jpg)
 
 Para la decoración de la boda, Cristina y Miguel se fiaron 100% de Izaskun de Flowers & Co. Una gran mesa en forma de T presidía el comedor, coronada con una elegante guirnalda de flores en medio. “Queríamos compartir tanto con nuestra familia en los lados como con nuestros amigos de frente”, explica la novia. Las flores románticas estilo peonías y las luces tipo verbena terminaron de aportar ese toque cálido y acogedor.
 
-![La boda de Cristina y Miguel](/images/la-boda-cristina-miguel-3-min.jpg) ![La boda de Cristina y Miguel](/images/la-boda-cristina-miguel-4-min.jpg)![La boda de Cristina y Miguel](/images/la-boda-de-cristina-miguel-4-min.jpg)
+![La boda de Cristina y Miguel]({{ site.baseurl }}/images/la-boda-cristina-miguel-3-min.jpg) ![La boda de Cristina y Miguel]({{ site.baseurl }}/images/la-boda-cristina-miguel-4-min.jpg)![La boda de Cristina y Miguel]({{ site.baseurl }}/images/la-boda-de-cristina-miguel-4-min.jpg)
 
 La decoración de las hojas que caen de las vigas sobre la zona presidencial fue una idea de Izaskun, así como las velas en el camino de la iglesia, una sorpresa que se encontraron los novios nada más llegar.
 
@@ -39,7 +39,7 @@ La decoración de las hojas que caen de las vigas sobre la zona presidencial fue
 
 Cristina tenía el miedo de toda novia: la lluvia. “Las primeras horas de la mañana tuvieron un extra de nerviosismo porque si bien llevaban 15 días pronosticando lluvia no me lo quise terminar de creer hasta que lo vi con mis propios ojos. Llovió desde la mañana hasta la noche pero finalmente no fue para nada un problema. De hecho, tuvo bastantes puntos positivos como que los invitados no se desperdigaron por los jardines para fumar y charlar en grupos”, cuenta Cristina. Se creó, entonces, un ambiente muy acogedor en el que todos los invitados se mezclaron.
 
-![La boda de Cristina y Miguel](/images/la-boda-de-cristina-miguel-1-min.jpg) ![La boda de Cristina y Miguel](/images/la-boda-de-cristina-miguel-2-min.jpg) ![La boda de Cristina y Miguel](/images/la-boda-de-cristina-miguel-3-min.jpg)
+![La boda de Cristina y Miguel]({{ site.baseurl }}/images/la-boda-de-cristina-miguel-1-min.jpg) ![La boda de Cristina y Miguel]({{ site.baseurl }}/images/la-boda-de-cristina-miguel-2-min.jpg) ![La boda de Cristina y Miguel]({{ site.baseurl }}/images/la-boda-de-cristina-miguel-3-min.jpg)
 
 ¿El momento más importante de la boda? La ceremonia. Los novios prepararon y personalizaron frase a frase toda la ceremonia con el sacerdote. Además, Cristina recuerda con cariño el discurso de su hermano tras la comida. Algo totalmente inesperado para ella y que la hizo emocionarse mucho.
 
@@ -55,6 +55,6 @@ Después, la fiesta. El momento más divertido. "Al haber un monton de gente jov
 
 Primer baile: _Love me tender_ de Elvis Presley (versión con Russian Red). Era nuestra canción y qué mejor momento que ese para inmortalizarla.
 
-![La boda de Cristina y Miguel](/images/la-boda-de-cristina-miguel-final-min.jpg)
+![La boda de Cristina y Miguel]({{ site.baseurl }}/images/la-boda-de-cristina-miguel-final-min.jpg)
 
 ##### **Fotografías:** Forester Fotógrafos | **Vestido de novia:** Beba's Closet | **Zapatos:** Bimba & Lola | **Iglesia:** Urrugne | **Finca:** Machoenia | **Flores:** Flowers & Co

@@ -15,7 +15,7 @@ Es el moño todoterreno por excelencia. Versátil, práctico, resultón y fácil
 
 Este estilo de moño es uno de los favoritos de las celebrities. No tenemos más que echar la vista atrás y viajar hasta Nueva York para darnos cuenta. Rihanna, Hailee Steinfeld, Priyanka Chopra, Kate Hudson y Haile Baldwin, entre otras, apostaron por el moño Top Knot para pisar la alfombra roja de la Met Gala 2017.
 
- *![cómo hacer un moño alto top knot](/images/como-hacer-un-mono-alto-top-knot-petit-pleasures-2.jpg)*  *![cómo hacer un moño alto top knot](/images/como-hacer-un-mono-alto-top-knot-petit-pleasures-3.jpg)* 
+ *![cómo hacer un moño alto top knot]({{ site.baseurl }}/images/como-hacer-un-mono-alto-top-knot-petit-pleasures-2.jpg)*  *![cómo hacer un moño alto top knot]({{ site.baseurl }}/images/como-hacer-un-mono-alto-top-knot-petit-pleasures-3.jpg)* 
 
 El moño alto Top Knot, tan de moda, es perfecto para novias que buscan un peinado diferente y eso lo saben de sobra en [**Bajobé Make Up Studio**](http://bajobe.com). Una de sus fundadoras, **María Nebrera**, lo tuvo claro cuando le propusieron esta editorial organizada por las chicas de [**Peonías Eventos**](http://www.peoniaseventos.com). "Buscábamos algo diferente y transgresor que rompiera con el concepto novias y que tuviera un toque oriental", comenta Nebrera.
 
@@ -33,7 +33,7 @@ Se trata de un peinado muy versátil que puede favorecer a cualquier tipo de ros
 
 5\. Para hacerlo en casa, Nebrera recomienda hacer la coleta con la cabeza boca abajo. "Carda la coleta y aplica un spray fijador como agua de sal o una cera mate suave. Después, retuerce la coleta sobre sí misma y enróllala ayudándote de alguna horquilla para sujetar el extremo final. Para finalizar, despeina con cuidado la parte frontal y la nuca. Recuerda que lo más representativo de este look es que quede lo más natural posible".
 
-![cómo hacer un moño alto top knot](/images/como-hacer-un-mono-alto-top-knot-petit-pleasures-4.jpg)
+![cómo hacer un moño alto top knot]({{ site.baseurl }}/images/como-hacer-un-mono-alto-top-knot-petit-pleasures-4.jpg)
 
 ¿Te animas a lucir el moño alto Top Knot?
 

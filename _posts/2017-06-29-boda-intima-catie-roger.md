@@ -25,15 +25,15 @@ Catie y Roger tenían claro que querían celebrar la [**boda**](https://petitple
 
 ### Catie y la búsqueda del vestido de novia perfecto
 
-![boda intima Catie y Roger](/images/boda-intima-catie-roger-2.jpg)
+![boda intima Catie y Roger]({{ site.baseurl }}/images/boda-intima-catie-roger-2.jpg)
 
-![boda intima Catie y Roger](/images/boda-intima-catie-roger-3.jpg)
+![boda intima Catie y Roger]({{ site.baseurl }}/images/boda-intima-catie-roger-3.jpg)
 
-![boda intima Catie y Roger](/images/boda-intima-catie-roger-4.jpg)
+![boda intima Catie y Roger]({{ site.baseurl }}/images/boda-intima-catie-roger-4.jpg)
 
-![boda intima Catie y Roger](/images/boda-intima-catie-roger-6.jpg)
+![boda intima Catie y Roger]({{ site.baseurl }}/images/boda-intima-catie-roger-6.jpg)
 
-![boda intima Catie y Roger](/images/boda-intima-catie-roger-5.jpg)
+![boda intima Catie y Roger]({{ site.baseurl }}/images/boda-intima-catie-roger-5.jpg)
 
 Catie soñaba con un vestido blanco sencillo. Tras mucho investigar, dio con una tienda de Florida que vendía muestras de vestidos de diseñadores fuera de stock. “Les llamé por teléfono para contarles que quería un vestido simple a un precio razonable. Me dijeron que tenían cinco diseños para mi presupuesto. Así que fui y me los probé todos. Eran bonitos pero estaban cargados de detalles y eran muy voluminosos como para llevarlos en una maleta destino San Sebastián”, comenta Catie.
 
@@ -49,54 +49,54 @@ La temática o inspiración de la boda no estaba pensada, todo fluyó de manera 
 
 ### De Miami a Donosti: La boda íntima de Catie & Roger
 
-![boda intima Catie y Roger](/images/boda-intima-catie-roger-7.jpg)
+![boda intima Catie y Roger]({{ site.baseurl }}/images/boda-intima-catie-roger-7.jpg)
 
-![boda intima Catie y Roger](/images/boda-intima-catie-roger-8.jpg)
+![boda intima Catie y Roger]({{ site.baseurl }}/images/boda-intima-catie-roger-8.jpg)
 
-![boda intima Catie y Roger](/images/boda-intima-catie-roger-9.jpg)
+![boda intima Catie y Roger]({{ site.baseurl }}/images/boda-intima-catie-roger-9.jpg)
 
-![boda intima Catie y Roger](/images/boda-intima-catie-roger-10.jpg)
+![boda intima Catie y Roger]({{ site.baseurl }}/images/boda-intima-catie-roger-10.jpg)
 
 El día de la boda eran ellos dos. Solos. Empezaron por un desayuno en el hotel. Catie siguió con una manicura y pedicura, después compraron champán en el mercado y caminaron juntos hasta la **Basílica de Santa María**. Roger vio cómo la peinaban y maquillaban. Catie observó cómo él escribía sus votos, que terminó dejándolos a un lado e improvisó unos nuevos en la iglesia.
 
-![boda intima Catie y Roger](/images/boda-intima-catie-roger-11.jpg)
+![boda intima Catie y Roger]({{ site.baseurl }}/images/boda-intima-catie-roger-11.jpg)
 
-![boda intima Catie y Roger](/images/boda-intima-catie-roger-12.jpg)
+![boda intima Catie y Roger]({{ site.baseurl }}/images/boda-intima-catie-roger-12.jpg)
 
-![boda intima Catie y Roger](/images/boda-intima-catie-roger-13.jpg)
+![boda intima Catie y Roger]({{ site.baseurl }}/images/boda-intima-catie-roger-13.jpg)
 
-![boda intima Catie y Roger](/images/boda-intima-catie-roger-14.jpg)
+![boda intima Catie y Roger]({{ site.baseurl }}/images/boda-intima-catie-roger-14.jpg)
 
-![boda intima Catie y Roger](/images/boda-intima-catie-roger-16.jpg)
+![boda intima Catie y Roger]({{ site.baseurl }}/images/boda-intima-catie-roger-16.jpg)
 
-![boda intima Catie y Roger](/images/boda-intima-catie-roger-15.jpg)
+![boda intima Catie y Roger]({{ site.baseurl }}/images/boda-intima-catie-roger-15.jpg)
 
 No querían perderse absolutamente nada. “Reímos y escuchamos música, brindamos, hicimos FaceTime con nuestras familias y disfrutamos el uno del otro cada segundo del día. Después de la ceremonia, paseamos por las calles y tomamos pintxos con nuestros trajes de boda. Después nos cambiamos y nos pusimos unos outfits más casual, fuimos a por más pintxos y tuvimos una cena genial en el **restaurante Rekondo**”, cuenta la pareja.
 
-![boda intima Catie y Roger](/images/boda-intima-catie-roger-17.jpg)
+![boda intima Catie y Roger]({{ site.baseurl }}/images/boda-intima-catie-roger-17.jpg)
 
-![boda intima Catie y Roger](/images/boda-intima-catie-roger-18.jpg)
+![boda intima Catie y Roger]({{ site.baseurl }}/images/boda-intima-catie-roger-18.jpg)
 
-![boda intima Catie y Roger](/images/boda-intima-catie-roger-20.jpg)
+![boda intima Catie y Roger]({{ site.baseurl }}/images/boda-intima-catie-roger-20.jpg)
 
-![boda intima Catie y Roger](/images/boda-intima-catie-roger-19.jpg)
+![boda intima Catie y Roger]({{ site.baseurl }}/images/boda-intima-catie-roger-19.jpg)
 
-![boda intima Catie y Roger](/images/boda-intima-catie-roger-23.jpg)
+![boda intima Catie y Roger]({{ site.baseurl }}/images/boda-intima-catie-roger-23.jpg)
 
-![boda intima Catie y Roger](/images/boda-intima-catie-roger-24.jpg)
+![boda intima Catie y Roger]({{ site.baseurl }}/images/boda-intima-catie-roger-24.jpg)
 
-![boda intima Catie y Roger](/images/boda-intima-catie-roger-25.jpg)
+![boda intima Catie y Roger]({{ site.baseurl }}/images/boda-intima-catie-roger-25.jpg)
 
-![boda intima Catie y Roger](/images/boda-intima-catie-roger-26.jpg)
+![boda intima Catie y Roger]({{ site.baseurl }}/images/boda-intima-catie-roger-26.jpg)
 
-![boda intima Catie y Roger](/images/boda-intima-catie-roger-28.jpg)
+![boda intima Catie y Roger]({{ site.baseurl }}/images/boda-intima-catie-roger-28.jpg)
 
-![boda intima Catie y Roger](/images/boda-intima-catie-roger-27.jpg)
+![boda intima Catie y Roger]({{ site.baseurl }}/images/boda-intima-catie-roger-27.jpg)
 
 Ni en sus mejores sueños imaginaron un día tan perfecto. "Todo lo que hicimos fue por amor, el uno para el otro, así es como tenemos la intención de seguir viviendo el resto de nuestra vida juntos".
 
-![boda intima Catie y Roger](/images/boda-intima-catie-roger-29.jpg)
+![boda intima Catie y Roger]({{ site.baseurl }}/images/boda-intima-catie-roger-29.jpg)
 
-![boda intima Catie y Roger](/images/boda-intima-catie-roger-30.jpg)
+![boda intima Catie y Roger]({{ site.baseurl }}/images/boda-intima-catie-roger-30.jpg)
 
 **Fotografía:** Iván Pérez / **Vestido novia:** Pronovias / **Jumpsuit post-boda:** Black Halo Brooklyn / **Traje novio:** Austin Burke Men's Clothier / **Wedding Planner:** 20 eventos / **Vídeo:** Paper Light Studio / **Maquillaje y Peluquería:** Soler BMak / **Flores:** Villaflores / **Iglesia:** Basílica Santa María / **Hotel:** María Cristina

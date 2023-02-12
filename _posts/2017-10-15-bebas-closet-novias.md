@@ -14,13 +14,13 @@ coverImage: "bebas_closet_francescas_angel_1-min.jpg"
 
 Una deliciosa muestra de siete vestidos de novia. Repletos de sensualidad. Diseños pensados para novias que toman conciencia de su cuerpo. Se exploran. Buscan su yo más íntimo. **Belén Barbero**, directora creativa de **Beba's Closet**, reivindica una mirada más femenina e íntima a través de siete diseños que bucean entre la delicadeza y la fuerza. Como resultado, una fuerza inherente al universo femenino que representa el imaginario de la diseñadora.
 
-![Beba's Closet 2018](/images/bebas_closet_francescas_angel_2-min.jpg) La nueva colección de vestidos de novia de Beba's Closet 2018
+![Beba's Closet 2018]({{ site.baseurl }}/images/bebas_closet_francescas_angel_2-min.jpg) La nueva colección de vestidos de novia de Beba's Closet 2018
 
- *![Beba's Closet 2018](/images/bebas_closet_francescas_angel_3-min.jpg)*  *![Beba's Closet 2018](/images/bebas_closet_francescas_angel_4-min.jpg)* ![Beba's Closet 2018](/images/bebas_closet_francescas_angel_6-min.jpg)
+ *![Beba's Closet 2018]({{ site.baseurl }}/images/bebas_closet_francescas_angel_3-min.jpg)*  *![Beba's Closet 2018]({{ site.baseurl }}/images/bebas_closet_francescas_angel_4-min.jpg)* ![Beba's Closet 2018]({{ site.baseurl }}/images/bebas_closet_francescas_angel_6-min.jpg)
 
 La **colección cápsula Francesca's Angel** nace en un momento de búsqueda. Belén Barbero se inspira, además, en la obra de la fotógrafa Francesca Woodman para reflexionar sobre la propia esencia de sus creaciones. De esta manera, explora el binomio ocultar-mostrar tan presente en sus [**vestidos de novia**](https://petitpleasures.com/novias-2018-bebas-closet/) para Beba's Closet.
 
-![vestidos de novia Beba's Closet](/images/bebas_closet_francescas_angel_7-min.jpg) ![vestidos de novia Beba's Closet](/images/bebas_closet_francescas_angel_8-min.jpg)
+![vestidos de novia Beba's Closet]({{ site.baseurl }}/images/bebas_closet_francescas_angel_7-min.jpg) ![vestidos de novia Beba's Closet]({{ site.baseurl }}/images/bebas_closet_francescas_angel_8-min.jpg)
 
 ### Francesca's Angel, la colección de novias más sensual de Beba's Closet 2018
 
@@ -38,21 +38,21 @@ Un juego de lo más sensual. Se muestra y se oculta para provocar una ilusión �
 
 Las siluetas de Francesca's Angel en ocasiones son entalladas para abrazar la silueta en toda su belleza. En otras ocasiones, simplemente la acarician gracias al vuelo de sus faldas, provocando una sensación de libertad que busca reivindicar la belleza de los rasgos únicos de cada novia. Sin encorsetar.
 
- *![vestidos de novia Beba's Closet](/images/bebas_closet_francescas_angel_9-min.jpg)*  *![vestidos de novia Beba's Closet](/images/bebas_closet_francescas_angel_10-min.jpg)*  *![vestidos de novia Beba's Closet](/images/bebas_closet_francescas_angel_11-min.jpg)*   *![vestidos de novia Beba's Closet](/images/bebas_closet_francescas_angel_12-min.jpg)* 
+ *![vestidos de novia Beba's Closet]({{ site.baseurl }}/images/bebas_closet_francescas_angel_9-min.jpg)*  *![vestidos de novia Beba's Closet]({{ site.baseurl }}/images/bebas_closet_francescas_angel_10-min.jpg)*  *![vestidos de novia Beba's Closet]({{ site.baseurl }}/images/bebas_closet_francescas_angel_11-min.jpg)*   *![vestidos de novia Beba's Closet]({{ site.baseurl }}/images/bebas_closet_francescas_angel_12-min.jpg)* 
 
 ### La campaña de Francesca's Angel
 
 La campaña de Francesca's Angel se estructura alrededor de la idea central de la colección. La búsqueda de la identidad y la evanescencia del propio yo a través de los vestidos de novia de Beba's Closet.
 
-  ![Beba's Closet Instagram](/images/bebas_closet_francescas_angel_5-min.jpg) *![Beba's Closet Instagram](/images/bebas_closet_francescas_angel_13-min.jpg)*  *![Beba's Closet Instagram](/images/bebas_closet_francescas_angel_14-min.jpg)* 
+  ![Beba's Closet Instagram]({{ site.baseurl }}/images/bebas_closet_francescas_angel_5-min.jpg) *![Beba's Closet Instagram]({{ site.baseurl }}/images/bebas_closet_francescas_angel_13-min.jpg)*  *![Beba's Closet Instagram]({{ site.baseurl }}/images/bebas_closet_francescas_angel_14-min.jpg)* 
 
 El espejo adquiere gran protagonismo en las fotografías de [**Días de Vino y Rosas**](http://www.diasdevinoyrosas.net/) para invitarnos a reflexionar en privado. En definitiva, reflexionar sobre la mirada propia contra la mirada del otro. Las imágenes en movimiento, constantes en la campaña, simbolizan la fugacidad de los instantes únicos. El velo, por su parte, permite jugar con los conceptos mostrar-ocultar o presencia-ausencia. Gana enteros cuando se muestra en color negro. Así contrasta con la pureza de los tejidos y se convierte en un [**lazo para el pelo**](https://petitpleasures.com/lazos-para-el-pelo/) repleto de personalidad y fuerza.
 
-![Beba's Closet Instagram](/images/bebas_closet_francescas_angel_15-min.jpg)
+![Beba's Closet Instagram]({{ site.baseurl }}/images/bebas_closet_francescas_angel_15-min.jpg)
 
 Las luces y los brillos ayudan a crear esa atmósfera irreal en la que se refugia la figura del ángel de la obra de Francesca Woodman. Es, para terminar, el elemento de transición clave entre dos mundos.
 
-![Beba's Closet Instagram](/images/bebas_closet_francescas_angel_16-min.jpg)
+![Beba's Closet Instagram]({{ site.baseurl }}/images/bebas_closet_francescas_angel_16-min.jpg)
 
 ##### ¿Qué os ha parecido esta nueva colección de vestidos de novia de Beba's Closet?
 

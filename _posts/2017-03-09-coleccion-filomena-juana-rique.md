@@ -13,13 +13,13 @@ coverImage: "coleccion-filomena-juana-rique-vestido-de-novia-petit-pleasures-1.j
 
 **Luz y flores**. La belleza de los pequeños detalles, la **calidad de los tejidos** y la apuesta por el **color**. Así son las nuevas propuestas **Primavera-Verano 2017** de **[Juana Rique](http://juanarique.com/)**. La diseñadora gallega presenta **Filomena**, una colección que se compone de once diseños de fiesta y un vestido de novia.
 
- *![coleccion filomena juana rique vestido de novia petit pleasures](/images/coleccion-filomena-juana-rique-vestido-de-novia-petit-pleasures-2.jpg)*  * ![](/images/coleccion-filomena-juana-rique-vestido-de-novia-petit-pleasures-3.jpg)* 
+ *![coleccion filomena juana rique vestido de novia petit pleasures]({{ site.baseurl }}/images/coleccion-filomena-juana-rique-vestido-de-novia-petit-pleasures-2.jpg)*  * ![]({{ site.baseurl }}/images/coleccion-filomena-juana-rique-vestido-de-novia-petit-pleasures-3.jpg)* 
 
-![coleccion filomena juana rique vestido de novia petit pleasures](/images/coleccion-filomena-juana-rique-vestido-de-novia-petit-pleasures-4.jpg)
+![coleccion filomena juana rique vestido de novia petit pleasures]({{ site.baseurl }}/images/coleccion-filomena-juana-rique-vestido-de-novia-petit-pleasures-4.jpg)
 
-![coleccion filomena juana rique vestido de novia petit pleasures](/images/coleccion-filomena-juana-rique-vestido-de-novia-petit-pleasures-5.jpg)
+![coleccion filomena juana rique vestido de novia petit pleasures]({{ site.baseurl }}/images/coleccion-filomena-juana-rique-vestido-de-novia-petit-pleasures-5.jpg)
 
-![coleccion filomena juana rique vestido de novia petit pleasures](/images/coleccion-filomena-juana-rique-vestido-de-novia-petit-pleasures-6.jpg)
+![coleccion filomena juana rique vestido de novia petit pleasures]({{ site.baseurl }}/images/coleccion-filomena-juana-rique-vestido-de-novia-petit-pleasures-6.jpg)
 
 Filomena es la **novia**. Una mujer ultra femenina que luce un vestido que parece sacado de un cuento de hadas. Se trata de un [**vestido de novia**](https://petitpleasures.com/vestidos/) delicado, femenino y etéreo, en el que las texturas de los tejidos juegan un papel fundamental. Los bordados, las transparencias, las flores y los volantes en los hombros le dan ese toque tan especial, tan de cuento.
 
@@ -33,30 +33,30 @@ Sin embargo, lo más llamativo de la nueva colección de Juana Rique es su gran 
 
 Pasen y vean, conozcan a las amigas de Filomena
 
- *![coleccion filomena juana rique vestido invitada petit pleasures](/images/coleccion-filomena-juana-rique-vestido-invitada-petit-pleasures-1.jpg)*  * ![coleccion filomena juana rique vestido invitada petit pleasures](/images/coleccion-filomena-juana-rique-vestido-invitada-petit-pleasures-2.jpg)* 
+ *![coleccion filomena juana rique vestido invitada petit pleasures]({{ site.baseurl }}/images/coleccion-filomena-juana-rique-vestido-invitada-petit-pleasures-1.jpg)*  * ![coleccion filomena juana rique vestido invitada petit pleasures]({{ site.baseurl }}/images/coleccion-filomena-juana-rique-vestido-invitada-petit-pleasures-2.jpg)* 
 
-![coleccion filomena juana rique vestido invitada petit pleasures](/images/coleccion-filomena-juana-rique-vestido-invitada-petit-pleasures-3.jpg)
+![coleccion filomena juana rique vestido invitada petit pleasures]({{ site.baseurl }}/images/coleccion-filomena-juana-rique-vestido-invitada-petit-pleasures-3.jpg)
 
-![coleccion filomena juana rique vestido invitada petit pleasures](/images/coleccion-filomena-juana-rique-vestido-invitada-petit-pleasures-4.jpg)
+![coleccion filomena juana rique vestido invitada petit pleasures]({{ site.baseurl }}/images/coleccion-filomena-juana-rique-vestido-invitada-petit-pleasures-4.jpg)
 
- *![coleccion filomena juana rique vestido invitada petit pleasures](/images/coleccion-filomena-juana-rique-vestido-invitada-petit-pleasures-6.jpg)*  * ![coleccion filomena juana rique vestido invitada petit pleasures](/images/coleccion-filomena-juana-rique-vestido-invitada-petit-pleasures-5.jpg)* 
+ *![coleccion filomena juana rique vestido invitada petit pleasures]({{ site.baseurl }}/images/coleccion-filomena-juana-rique-vestido-invitada-petit-pleasures-6.jpg)*  * ![coleccion filomena juana rique vestido invitada petit pleasures]({{ site.baseurl }}/images/coleccion-filomena-juana-rique-vestido-invitada-petit-pleasures-5.jpg)* 
 
-![coleccion filomena juana rique vestido invitada petit pleasures](/images/coleccion-filomena-juana-rique-vestido-invitada-petit-pleasures-7.jpg)
+![coleccion filomena juana rique vestido invitada petit pleasures]({{ site.baseurl }}/images/coleccion-filomena-juana-rique-vestido-invitada-petit-pleasures-7.jpg)
 
-![coleccion filomena juana rique vestido invitada petit pleasures](/images/coleccion-filomena-juana-rique-vestido-invitada-petit-pleasures-8.jpg)
+![coleccion filomena juana rique vestido invitada petit pleasures]({{ site.baseurl }}/images/coleccion-filomena-juana-rique-vestido-invitada-petit-pleasures-8.jpg)
 
-![coleccion filomena juana rique vestido invitada petit pleasures](/images/coleccion-filomena-juana-rique-vestido-invitada-petit-pleasures-9.jpg)
+![coleccion filomena juana rique vestido invitada petit pleasures]({{ site.baseurl }}/images/coleccion-filomena-juana-rique-vestido-invitada-petit-pleasures-9.jpg)
 
- *![coleccion filomena juana rique vestido invitada petit pleasures](/images/coleccion-filomena-juana-rique-vestido-invitada-petit-pleasures-10.jpg)*  *![coleccion filomena juana rique vestido invitada petit pleasures](/images/coleccion-filomena-juana-rique-vestido-invitada-petit-pleasures-11.jpg)* 
+ *![coleccion filomena juana rique vestido invitada petit pleasures]({{ site.baseurl }}/images/coleccion-filomena-juana-rique-vestido-invitada-petit-pleasures-10.jpg)*  *![coleccion filomena juana rique vestido invitada petit pleasures]({{ site.baseurl }}/images/coleccion-filomena-juana-rique-vestido-invitada-petit-pleasures-11.jpg)* 
 
-![coleccion filomena juana rique vestido invitada petit pleasures](/images/coleccion-filomena-juana-rique-vestido-invitada-petit-pleasures-12.jpg)
+![coleccion filomena juana rique vestido invitada petit pleasures]({{ site.baseurl }}/images/coleccion-filomena-juana-rique-vestido-invitada-petit-pleasures-12.jpg)
 
-![coleccion filomena juana rique vestido invitada petit pleasures](/images/coleccion-filomena-juana-rique-vestido-invitada-petit-pleasures-13.jpg)
+![coleccion filomena juana rique vestido invitada petit pleasures]({{ site.baseurl }}/images/coleccion-filomena-juana-rique-vestido-invitada-petit-pleasures-13.jpg)
 
-![coleccion filomena juana rique vestido invitada petit pleasures](/images/coleccion-filomena-juana-rique-vestido-invitada-petit-pleasures-14.jpg)
+![coleccion filomena juana rique vestido invitada petit pleasures]({{ site.baseurl }}/images/coleccion-filomena-juana-rique-vestido-invitada-petit-pleasures-14.jpg)
 
-![coleccion filomena juana rique vestido invitada petit pleasures](/images/coleccion-filomena-juana-rique-vestido-invitada-petit-pleasures-15.jpg)
+![coleccion filomena juana rique vestido invitada petit pleasures]({{ site.baseurl }}/images/coleccion-filomena-juana-rique-vestido-invitada-petit-pleasures-15.jpg)
 
- *![coleccion filomena juana rique vestido invitada petit pleasures](/images/coleccion-filomena-juana-rique-vestido-invitada-petit-pleasures-16.jpg)*  * ![coleccion filomena juana rique vestido invitada petit pleasures](/images/coleccion-filomena-juana-rique-vestido-invitada-petit-pleasures-17.jpg)* 
+ *![coleccion filomena juana rique vestido invitada petit pleasures]({{ site.baseurl }}/images/coleccion-filomena-juana-rique-vestido-invitada-petit-pleasures-16.jpg)*  * ![coleccion filomena juana rique vestido invitada petit pleasures]({{ site.baseurl }}/images/coleccion-filomena-juana-rique-vestido-invitada-petit-pleasures-17.jpg)* 
 
 **Coordinación y estilismo:** Rodolfo Mcartney **Vestidos:** Juana Rique **Fotografía:** Mujer y Marido **Tocados:** Jimena Rilova **MUA:** Novo Século

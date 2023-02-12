@@ -18,24 +18,24 @@ Los **Oscars de 2017** se recordarán para siempre por este desafortunado error
 
 ### Las mejor vestidas de los Oscar 2017
 
- *![oscar 2017 ,mejor vestidas emma stone](/images/oscar-2017-mejor-vestidas-emma-stone.jpg)* 
+ *![oscar 2017 ,mejor vestidas emma stone]({{ site.baseurl }}/images/oscar-2017-mejor-vestidas-emma-stone.jpg)* 
 
- *![oscar 2017 mejor vestidas emma stone](/images/oscar-2017-mejor-vestidas-emma-stone-1.jpg)* 
+ *![oscar 2017 mejor vestidas emma stone]({{ site.baseurl }}/images/oscar-2017-mejor-vestidas-emma-stone-1.jpg)* 
 
 **Emma Stone:** La actriz ha pisado la alfombra roja con look de triunfadora. Emma Stone, ganadora del Oscar a Mejor Actriz por 'La La Land', encabeza la lista de las mejor vestidas de la alfombra roja de los Oscar 2017. Emma ha brillado con un vestido dorado de **Givenchy Alta Costura**, de tirantes y estilo lencero. El toque años 20 del look lo da la falda repleta de flecos degradé y una melena suelta ondulada. En cuanto al maquillaje, unos labios dark y ojos muy marcados con sombras marrones. ¡Un 10!
 
- *![oscar 2017 mejor vestidas nicole kidman](/images/oscar-2017-mejor-vestidas-nicole-kidman.jpg)*  *![oscar 2017 mejor vestidas nicole kidman](/images/oscar-2017-mejor-vestidas-nicole-kidman-1.jpg)* 
+ *![oscar 2017 mejor vestidas nicole kidman]({{ site.baseurl }}/images/oscar-2017-mejor-vestidas-nicole-kidman.jpg)*  *![oscar 2017 mejor vestidas nicole kidman]({{ site.baseurl }}/images/oscar-2017-mejor-vestidas-nicole-kidman-1.jpg)* 
 
 **Nicole Kidman:** Ella es elegancia pura. El glamour lo lleva implícito en su propio nombre. La actriz, nominada al Oscar por 'Lion', es mi segunda favorita de los Oscar 2017. Nicole Kidman demuestra una vez más que luce como nadie los vestidos en tonos claros. Este diseño joya de **Armani Privé** en color maquillaje está repleto de perlas y brillantes bordados que crean figuras geométricas de lo más favorecedoras. Para combinar este diseño tan delicado, unos labios rojos y maquillaje natural.
 
- *![oscar 2017 mejor vestidas dakota johnson](/images/oscar-2017-mejor-vestidas-dakota-johnson.jpg)*  *![oscar 2017 mejor vestidas dakota johnson](/images/oscar-2017-mejor-vestidas-dakota-johnson-1.jpg)* 
+ *![oscar 2017 mejor vestidas dakota johnson]({{ site.baseurl }}/images/oscar-2017-mejor-vestidas-dakota-johnson.jpg)*  *![oscar 2017 mejor vestidas dakota johnson]({{ site.baseurl }}/images/oscar-2017-mejor-vestidas-dakota-johnson-1.jpg)* 
 
 **Dakota Johnson:** Lo siento pero no he podido evitarlo... Necesitamos más vestidos como este maravilloso **Gucci** sobre las alfombras rojas. El diseño que ha lucido Dakota ha sido de los más criticados pero para mí uno de los mejores. ¿No estáis aburridas de pedrerías, transparencias y escotes? Alessandro Michele, director creativo de Gucci, sigue siendo el diseñador a tener en cuenta. Este vestido satinado en color dorado, con cola larga, hombros marcados, cuello alto y escote plisado de estilo vintage me parece todo un acierto por parte de Dakota Johnson.
 
- *![oscar 2017 mejor vestidas jessica biel](/images/oscar-2017-mejor-vestidas-jessica-biel.jpg)*  *![](/images/oscar-2017-mejor-vestidas-jessica-biel-1.jpg "oscar 2017 mejor vestidas jessica biel")* 
+ *![oscar 2017 mejor vestidas jessica biel]({{ site.baseurl }}/images/oscar-2017-mejor-vestidas-jessica-biel.jpg)*  *![]({{ site.baseurl }}/images/oscar-2017-mejor-vestidas-jessica-biel-1.jpg "oscar 2017 mejor vestidas jessica biel")* 
 
 **Jessica Biel:** Aquí otro ejemplo de cómo darle una vuelta a un vestido clásico, en este caso al típico diseño de lentejuelas. Jessica Biel siempre es de mis favoritas en las alfombras rojas y estaba convencida de que en los Oscar no me iba a fallar. La actriz ha brillado con un vestido de **KaufmanFranco** de estilo tribal y tonos metalizados en dorado. Como accesorio, un collar de plumas tamaño maxi de **Tiffany & Co** que parecía que formaba parte del propio vestido. El peinado sencillo y pulido, la mejor elección para dar todo el protagonismo a un vestido 10.
 
- *![oscar 2017 mejor vestidas emma roberts](/images/oscar-2017-mejor-vestidas-emma-roberts.jpg)*  *![oscar 2017 mejor vestidas emma roberts](/images/oscar-2017-mejor-vestidas-emma-roberts-1.jpg)* 
+ *![oscar 2017 mejor vestidas emma roberts]({{ site.baseurl }}/images/oscar-2017-mejor-vestidas-emma-roberts.jpg)*  *![oscar 2017 mejor vestidas emma roberts]({{ site.baseurl }}/images/oscar-2017-mejor-vestidas-emma-roberts-1.jpg)* 
 
 **Emma Roberts:** Fuera del #TeamGold, me quedo con el look de Emma Roberts. **Armani** está de enhorabuena. Además de vestir a la maravillosa Isabelle Huppert y a la elegantísima Nicole Kidman, ha tenido el placer de cederle a Emma este diseño vintage. Se trata de un vestido de **Armani Privé** compuesto por un top negro de gran escote y una falda de volantes con un estampado de hojas en relieve. La guinda final la pone su espectacular melena pelirroja, que ha lucido con unas sensuales ondas y labios en color rojo.
